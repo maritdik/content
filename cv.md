@@ -1,70 +1,70 @@
 CV
 
 
-Education  | etc
+Education  |
 --------- | ---------
 1995-2000 |	NAU, Nieuwe Academie Utrecht, Utrecht 
 1976-1983 |	Psychologie, VU, Vrije Universiteit, Amsterdam 
 1983-2016 |	Werkzaam in deeltijd als psycholoog o.m. voor esdege-reigersdaal. NH
 Exhibitions  | 
 2016 | Rundgang Spinnerei Leipzig, carpe plumbum
-		 | Galerie SANAA, Prix de Joop (winnaar) , Utrecht
-		 | Galerie Helder, den Haag www.galeriehelder.nl
-		 | MOTI-museum, Van Gogh Mini’s, Breda www.motimuseum.nl
-		 | Kunsttraject, Staatsliedenbuurt, Amsterdam
-		 | Eerste Bergensche Boekhandel, Bergen
-		 | Uitgave “De Dagen” met Pauline Sparreboom
-		 | Mövenpick, Meeting Centre, permanent, Amsterdam
+	 | Galerie SANAA, Prix de Joop (winnaar) , Utrecht
+	 | Galerie Helder, den Haag www.galeriehelder.nl
+	 | MOTI-museum, Van Gogh Mini’s, Breda www.motimuseum.nl
+	 | Kunsttraject, Staatsliedenbuurt, Amsterdam
+	 | Eerste Bergensche Boekhandel, Bergen
+	 | Uitgave “De Dagen” met Pauline Sparreboom
+	 | Mövenpick, Meeting Centre, permanent, Amsterdam
 2015 | Blind Date II, DAK, Utrecht
-		 | De Vishal, Haarlem
-		 | LADENKASTPROJECT, Galerie Phoebus, Rotterdam
-		 | Art the Hague, Galerie Helder
-		 | No Curtains, Galerie Oranjerie, Amsterdam
-		 | Galerie With Tsjalling, OGENBLIKSEM #6, Groningen
-		 | Galerie Oranjerie, Amsterdam
-		 | Galerie SANAA, OGENBLIKSEM #5, Utrecht
-		 | KiK Kolderveen, OGENBLIKSEM#3 + #4, residency
-		 | Der Wald verschlingt Dich, Epse
-		 |	Rotterdam Contemporaiy Art Fair
-		 |	Chaos in Beauty, KCB, Museum Kranenburgh, Bergen
-		 |	Transformations, Galerie Helder, The Hague www.galeriehelder.nl 
+	 | De Vishal, Haarlem
+	 | LADENKASTPROJECT, Galerie Phoebus, Rotterdam
+	 | Art the Hague, Galerie Helder
+	 | No Curtains, Galerie Oranjerie, Amsterdam
+	 | Galerie With Tsjalling, OGENBLIKSEM #6, Groningen
+	 | Galerie Oranjerie, Amsterdam
+	 | Galerie SANAA, OGENBLIKSEM #5, Utrecht
+	 | KiK Kolderveen, OGENBLIKSEM#3 + #4, residency
+	 | Der Wald verschlingt Dich, Epse
+	 | Rotterdam Contemporaiy Art Fair
+	 | Chaos in Beauty, KCB, Museum Kranenburgh, Bergen
+	 | Transformations, Galerie Helder, The Hague www.galeriehelder.nl 
 2014 	| CBK Groningen, Nieuwe Collectie
-		| OGENBLIKSEM#2 Leiden
-		| OGENBLIKSEM, Utrecht
-		| Hommage (aan het Puttertje van Fabritius), www.hommage.nl
-		| Boterhal, 1001 Nights, tales of Eros, Hoorn
-		| Kunstcentrum, Voor jou (solo), Zaandam
+	| OGENBLIKSEM#2 Leiden
+	| OGENBLIKSEM, Utrecht
+	| Hommage (aan het Puttertje van Fabritius), www.hommage.nl
+	| Boterhal, 1001 Nights, tales of Eros, Hoorn
+	| Kunstcentrum, Voor jou (solo), Zaandam
 2013 	| Galerie Helder, The Ideal World, The Hague
-		| Museum Kranenburgh, Bergen
-		| Galerie Posthuys, Who will love a little sparrow? Texel
-		| De Witte Slagerij, Cradlesong, Rotterdam
-		| Re:Rotterdam, Rotterdam
-		| Art at the Warehouse, Galerie Iris Cornelis, Rotterdam
+	| Museum Kranenburgh, Bergen
+	| Galerie Posthuys, Who will love a little sparrow? Texel
+	| De Witte Slagerij, Cradlesong, Rotterdam
+	| Re:Rotterdam, Rotterdam
+	| Art at the Warehouse, Galerie Iris Cornelis, Rotterdam
 2012 	| Somebody's Room, Leipzig, Germany
-		| Rundgang, Spinnerei, Leipzig, Germany
-		| Summerexhibition, LIA Leipzig, Germany
-		| Schunk* tentoonstelling/veiling, initiatief Pam Emmerik, Heerlen
-		| Paviljoen Rotterdam, Rotterdam
+	| Rundgang, Spinnerei, Leipzig, Germany
+	| Summerexhibition, LIA Leipzig, Germany
+	| Schunk* tentoonstelling/veiling, initiatief Pam Emmerik, Heerlen
+	| Paviljoen Rotterdam, Rotterdam
 2011 	| Galerie Iris Cornelis Rotterdam 
 2010 	| Dwalen, CC De Bogaard, Sint Truiden , Belgium 
 2009 	| Connections, Muroff Kotler Visual Arts Gallery, SUNY Ulster, USA
-		| What's under your pillow, solo, galerie Wilms (vh.New Untitled), Venlo 
-		| Presentatie nieuw werk bij Van Laethem, kasteel Oud Rekem, Belgium	
+	| What's under your pillow, solo, galerie Wilms (vh.New Untitled), Venlo 
+	| Presentatie nieuw werk bij Van Laethem, kasteel Oud Rekem, Belgium	
 2008 	| Kunst & Koningsduin, Bakkum
-		| Betrekkelijk Rustig..., Kasteel Oud Rekem, Belgium 
+	| Betrekkelijk Rustig..., Kasteel Oud Rekem, Belgium 
 2007 	| “Ode”, Grafisch Atelier, Alkmaar
-		| “Family Matters”, Kunsteyssen, Alkmaar
-		| “Lovely, Shitty World”, Flatland Gallery, Utrecht
-		| Van Laethem, Hasselt, Belgium 
+	| “Family Matters”, Kunsteyssen, Alkmaar
+	| “Lovely, Shitty World”, Flatland Gallery, Utrecht
+	| Van Laethem, Hasselt, Belgium 
 2006 	| “Hé!“, Vijzelgracht 50, Amsterdam
-		| “I talked to God in a phonebox on my way home”, Flatland Gallery, Utrecht
-		| TNO, Defensie en Veiligheid (solo), The Hague
+	| “I talked to God in a phonebox on my way home”, Flatland Gallery, Utrecht
+	| TNO, Defensie en Veiligheid (solo), The Hague
 2005 	| 	“Twee schilders”, Noordergeest, Heiloo
 2004 	| Mathildenhöhe, Darmstadt, Germany, Mirabel, France
 2003 	| “Vensters”, Grote Sint Laurenskerk, Alkmaar
 2002 	| “REBUS”, project by Pygmalion, Alkmaar
-		| “They live happily ever after”, Helderse Kunstliga, Den Helder
-Activities/residencies |
+	| “They live happily ever after”, Helderse Kunstliga, Den Helder
+Activities/ residencies |
 2016 | Artist-in residence, 5. Hochdruck Symposium Leipzig, BBKLeipzig en capre plumbum
 2015 | Artist-in residence, KiK Kolderveen  www.kik-site.nl 
 2012 | Artist-in residence, Leipzig International Art Program, Germany,  www.liap.eu 
