@@ -1,7 +1,7 @@
 CV
 
 
-Education  |
+Education  | |
 --------- | ---------
 1995-2000 |	NAU, Nieuwe Academie Utrecht, Utrecht 
 1976-1983 |	Psychologie, VU, Vrije Universiteit, Amsterdam 
