@@ -5,6 +5,7 @@ Stel je voor: kleine schouwburgscenes uit absurde toneelstukken. Die ook surreal
 Link: http://www.avondlog.nl/tags/marit-dik
 
 
+
 ## Uit : Transformaties, openingstekst door Alex de Vries bij de tentoonstelling van Lars Weller en Marit Dik, galerie Helder, Den Haag, 10 januari – 15 februari 2015
 
 [....] De cinematografische transformaties in het werk van Lars Weller vinden we op een andere manier terug in de schilderijen en de 3d collages van Marit Dik. Vooral die collages zijn gemaakt als een miniatuur-set voor een film. Je kunt je er hele scènes in voorstellen. Het zijn als het ware opengewerkte decors waarin camera’s vrijelijk kunnen bewegen om iedere gezichtshoek mogelijk te kunnen maken.
