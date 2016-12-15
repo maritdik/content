@@ -1,4 +1,6 @@
 
+# Articles
+
 * [Avondlog Wim Noordhoek, 2015](#avondlog-wim-noordhoek-2015-marit-dik-in-de-derde-dimensie-)
 * [galerie Helder, Den Haag, 10 januari – 15 februari 2015](#galerie-helder-den-haag-10-januari-15-februari-2015)
 * [Een zachte vloeiende stroom ribbelt over het doek](#een-zachte-vloeiende-stroom-ribbelt-over-het-doek-)
