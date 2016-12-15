@@ -1,10 +1,13 @@
+
+[Avondlog Wim Noordhoek, 2015](#-avondlog-wim-noordhoek-2015-marit-dik-in-de-derde-dimensie)
+
 # Avondlog Wim Noordhoek, 2015, "Marit Dik in de derde dimensie"
 
 Stel je voor: kleine schouwburgscenes uit absurde toneelstukken. Die ook surrealistische collages zijn. Wat voegt die derde dimensie toe? Je staat er als Gulliver over gebogen. Eerst dichtbij kijken, dan, bij een stapje achteruit, overzie je het geheel. Je kijkt achter de gordijnen, in de coulissen. Eerder zag ik een diorama van Marit Dik bij Ogenbliksem in de oude kaasfabriek in het Overijsselse Kolderveen. Nu zijn er dertien verzameld bij de nieuwe Amsterdamse galerie Orangerie. Een unieke vertoning. Wat er gebeurt er in haar mini-filmsets? Het ironiseren van kunst vooral, zoals in haar geestige versie van Suzanna en de ouderlingen die haar moderne badkamer zijn binnengedrongen. Suzanna duikt weg. Noem het filmsets of kijkdozen zonder dak. Willem Brakman, de kijkdozenfreak zou er als een blok voor gevallen zijn. Ook bijvoorbeeld voor het als in een weerhuisje beweegbare, innig verstrengeld stel. Marit Dik werkt met al wat van pas komt, foto's, tekeningen, de schaar. Dali? Willem van Genk? Steeds weer schiet ik in de lach, zonder precies te weten waarom. Dat is de opgave van deze vederlichte tentoonstelling. Het steeds weer merken dat Marit Dik je te vlug af is.
 
 Link: http://www.avondlog.nl/tags/marit-dik
 
-
+# avondlog
 
 ## Uit : Transformaties, openingstekst door Alex de Vries bij de tentoonstelling van Lars Weller en Marit Dik, galerie Helder, Den Haag, 10 januari – 15 februari 2015
 
