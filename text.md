@@ -2,17 +2,30 @@
 # Articles
 
 * [Avondlog Wim Noordhoek, 2015](#avondlog-wim-noordhoek-2015-marit-dik-in-de-derde-dimensie-)
+* [Mister Motley, mei 2015](#mister-motley-mei-2015)
 * [galerie Helder, Den Haag, 10 januari – 15 februari 2015](#galerie-helder-den-haag-10-januari-15-februari-2015)
 * [Een zachte vloeiende stroom ribbelt over het doek](#een-zachte-vloeiende-stroom-ribbelt-over-het-doek-)
 * [THIS IS A LOVESONG](#this-is-a-lovesong)
-* [Mister Motley, mei 2015](#mister-motley-mei-2015)
+
 
 # Avondlog Wim Noordhoek, 2015, "Marit Dik in de derde dimensie"
 
-Stel je voor: kleine schouwburgscenes uit absurde toneelstukken. Die ook surrealistische collages zijn. Wat voegt die derde dimensie toe? Je staat er als Gulliver over gebogen. Eerst dichtbij kijken, dan, bij een stapje achteruit, overzie je het geheel. Je kijkt achter de gordijnen, in de coulissen. Eerder zag ik een diorama van Marit Dik bij Ogenbliksem in de oude kaasfabriek in het Overijsselse Kolderveen. Nu zijn er dertien verzameld bij de nieuwe Amsterdamse galerie Orangerie. Een unieke vertoning. Wat er gebeurt er in haar mini-filmsets? Het ironiseren van kunst vooral, zoals in haar geestige versie van Suzanna en de ouderlingen die haar moderne badkamer zijn binnengedrongen. Suzanna duikt weg. Noem het filmsets of kijkdozen zonder dak. Willem Brakman, de kijkdozenfreak zou er als een blok voor gevallen zijn. Ook bijvoorbeeld voor het als in een weerhuisje beweegbare, innig verstrengeld stel. Marit Dik werkt met al wat van pas komt, foto's, tekeningen, de schaar. Dali? Willem van Genk? Steeds weer schiet ik in de lach, zonder precies te weten waarom. Dat is de opgave van deze vederlichte tentoonstelling. Het steeds weer merken dat Marit Dik je te vlug af is.
-
 Link: http://www.avondlog.nl/tags/marit-dik
 
+Stel je voor: kleine schouwburgscenes uit absurde toneelstukken. Die ook surrealistische collages zijn. Wat voegt die derde dimensie toe? Je staat er als Gulliver over gebogen. Eerst dichtbij kijken, dan, bij een stapje achteruit, overzie je het geheel. Je kijkt achter de gordijnen, in de coulissen. Eerder zag ik een diorama van Marit Dik bij Ogenbliksem in de oude kaasfabriek in het Overijsselse Kolderveen. Nu zijn er dertien verzameld bij de nieuwe Amsterdamse galerie Orangerie. Een unieke vertoning. Wat er gebeurt er in haar mini-filmsets? Het ironiseren van kunst vooral, zoals in haar geestige versie van Suzanna en de ouderlingen die haar moderne badkamer zijn binnengedrongen. Suzanna duikt weg. Noem het filmsets of kijkdozen zonder dak. Willem Brakman, de kijkdozenfreak zou er als een blok voor gevallen zijn. Ook bijvoorbeeld voor het als in een weerhuisje beweegbare, innig verstrengeld stel. Marit Dik werkt met al wat van pas komt, foto's, tekeningen, de schaar. Dali? Willem van Genk? Steeds weer schiet ik in de lach, zonder precies te weten waarom. Dat is de opgave van deze vederlichte tentoonstelling. Het steeds weer merken dat Marit Dik je te vlug af is.
+
+
+---
+   
+   
+   
+## Mister Motley, mei 2015
+
+### Uit De kunstenaar kan alles, Alex de Vries, bij de opening van OGENBLIKSEM #5 in galerie Sanaa
+
+Marit Dik bekijkt de wereld vanuit een mengeling van bekommernis en zorgeloosheid. Ze kan niet overal verantwoordelijkheid voor nemen, hoezeer wat haar haar omgeving ook overkomt haar ook ter harte gaat. In haar schilderijen en diorama’s is er sprake van een overweldiging die buiten haar omgaat. Het is een vorm van visitatie, een engel die een onmogelijke boodschap brengt, waaraan je bent gehouden te voldoen. Het lot van de mensheid rust op je schouders. Iemand strijkt met zijn hand lang je hele lichaam om te bevoelen wat je te verbergen hebt. Marit Dik brengt iets in de wereld waarom niet is gevraagd, maar wat ze wel te bieden heeft.
+
+Link: http://www.mistermotley.nl/art-everyday-life/de-kunstenaar-kan-alles
 
 ## galerie Helder, Den Haag, 10 januari – 15 februari 2015
 
@@ -57,13 +70,7 @@ In one painting, a tough-looking adolescent girl, her midriff exposed, is unawar
 Dik included smaller works she had painted while participating in a residency in ArtToll, Germany, earlier this year. She shows her work in Holland, and Belgium.
 During her stay in Phoenicia, she took many photos. Dik said she immediately felt at home in her new surroundings. “The colors are so nice. The feeling of so many animals is wonderful. We don’t have skunks and raccoons. It’s always surprising what you see.”
 
-## Mister Motley, mei 2015
 
-### Uit De kunstenaar kan alles, Alex de Vries, bij de opening van OGENBLIKSEM #5 in galerie Sanaa
-
-Marit Dik bekijkt de wereld vanuit een mengeling van bekommernis en zorgeloosheid. Ze kan niet overal verantwoordelijkheid voor nemen, hoezeer wat haar haar omgeving ook overkomt haar ook ter harte gaat. In haar schilderijen en diorama’s is er sprake van een overweldiging die buiten haar omgaat. Het is een vorm van visitatie, een engel die een onmogelijke boodschap brengt, waaraan je bent gehouden te voldoen. Het lot van de mensheid rust op je schouders. Iemand strijkt met zijn hand lang je hele lichaam om te bevoelen wat je te verbergen hebt. Marit Dik brengt iets in de wereld waarom niet is gevraagd, maar wat ze wel te bieden heeft.
-
-Link: http://www.mistermotley.nl/art-everyday-life/de-kunstenaar-kan-alles
 
 
 
