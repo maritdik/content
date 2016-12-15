@@ -1,5 +1,10 @@
 
-[Avondlog Wim Noordhoek, 2015](#-avondlog-wim-noordhoek-2015-marit-dik-in-de-derde-dimensie)
+* [Avondlog Wim Noordhoek, 2015](#-avondlog-wim-noordhoek-2015-marit-dik-in-de-derde-dimensie)
+* [galerie Helder, Den Haag, 10 januari – 15 februari 2015](#-galerie-helder-den-haag-10-januari-15-februari-2015)
+* [Een zachte vloeiende stroom ribbelt over het doek](#-een-zachte-vloeiende-stroom-ribbelt-over-het-doek)
+* [THIS IS A LOVESONG](#-this-is-a-lovesong)
+* [Mister Motley, mei 2015](#-mister-motley-mei-2015)
+* [
 
 # Avondlog Wim Noordhoek, 2015, "Marit Dik in de derde dimensie"
 
@@ -7,9 +12,10 @@ Stel je voor: kleine schouwburgscenes uit absurde toneelstukken. Die ook surreal
 
 Link: http://www.avondlog.nl/tags/marit-dik
 
-# avondlog
 
-## Uit : Transformaties, openingstekst door Alex de Vries bij de tentoonstelling van Lars Weller en Marit Dik, galerie Helder, Den Haag, 10 januari – 15 februari 2015
+## galerie Helder, Den Haag, 10 januari – 15 februari 2015
+
+### Uit : Transformaties, openingstekst door Alex de Vries bij de tentoonstelling van Lars Weller en Marit Dik
 
 [....] De cinematografische transformaties in het werk van Lars Weller vinden we op een andere manier terug in de schilderijen en de 3d collages van Marit Dik. Vooral die collages zijn gemaakt als een miniatuur-set voor een film. Je kunt je er hele scènes in voorstellen. Het zijn als het ware opengewerkte decors waarin camera’s vrijelijk kunnen bewegen om iedere gezichtshoek mogelijk te kunnen maken.
 De manier waarop deze collages functioneren, doet enigszins denken aan de werkwijze van Alfred Hitchcock voor zijn film ‘Rope’ uit 1948. Daarin duurde steeds iedere scène precies de tien minuten van een filmrol en wekte Hitchcock zelfs de suggestie van een onafgebroken opname door de overgangen tussen de filmrollen subtiel te maskeren.
@@ -38,7 +44,10 @@ Het lijkt alsof de recente periode als artist-in-residence in ArToll, Duitsland 
 *Vertaling van de door Donna Wolf geschreven tekst:” A gentle flowing pulse rippels across the canvas”, 2009*
 
 
-## THIS IS A LOVESONG, artist-in-residency, Phoenicia, NY
+## THIS IS A LOVESONG 
+
+### artist-in-residency, Phoenicia, NY
+
 art review by Lynn Woods
 In early September, eight Dutch artists arrived in Ulster County for their month-long residency, in time for the opening of the group show of their work at SUNY-Ulster on Sept. 10.
 Marit Dik was one of nine artists who participated in an artist in residency program in Ulster County, in the mid Hudson Valley of New York, in September and early October. Her painting, "Fifteen," was included in the group exhibition in September at the State University of New York-Ulster community college, and she showed her large, psychologically charged acrylic canvases of figures in a landscape at the Arts Upstairs Gallery in Phoenicia. Dik, who was a psychologist before becoming an exhibiting painter in 2000, transformed a room of the gallery into an installation, “This is a love song,” the fable of an adolescent girl’s transition into womanhood through a romantic encounter with a young man. The narrative was told through a series of paintings loosely connected by pastoral charcoal drawings on the walls and accompanied by a recording of a Dutch nursery rhyme, in which a robin --stand-in for the man--knocked on the door of a cabin to come out of the cold, stayed the winter, then abandoned the girl in the spring. “I started to draw on the wall for context, to make a story without words,” Dik said. “The paintings I brought with me, the drawings are all impressions from here.” They include depictions of animals she encountered for the first time in the mountainous woods around Phoenicia, such as raccoons and flying squirrels.
@@ -47,27 +56,14 @@ In one painting, a tough-looking adolescent girl, her midriff exposed, is unawar
 Dik included smaller works she had painted while participating in a residency in ArtToll, Germany, earlier this year. She shows her work in Holland, and Belgium.
 During her stay in Phoenicia, she took many photos. Dik said she immediately felt at home in her new surroundings. “The colors are so nice. The feeling of so many animals is wonderful. We don’t have skunks and raccoons. It’s always surprising what you see.”
 
+## Mister Motley, mei 2015
 
-## Uit De kunstenaar kan alles, Mister Motley, mei 2015, Alex de Vries, bij de opening van OGENBLIKSEM #5 in galerie Sanaa
+### Uit De kunstenaar kan alles, Alex de Vries, bij de opening van OGENBLIKSEM #5 in galerie Sanaa
 
 Marit Dik bekijkt de wereld vanuit een mengeling van bekommernis en zorgeloosheid. Ze kan niet overal verantwoordelijkheid voor nemen, hoezeer wat haar haar omgeving ook overkomt haar ook ter harte gaat. In haar schilderijen en diorama’s is er sprake van een overweldiging die buiten haar omgaat. Het is een vorm van visitatie, een engel die een onmogelijke boodschap brengt, waaraan je bent gehouden te voldoen. Het lot van de mensheid rust op je schouders. Iemand strijkt met zijn hand lang je hele lichaam om te bevoelen wat je te verbergen hebt. Marit Dik brengt iets in de wereld waarom niet is gevraagd, maar wat ze wel te bieden heeft.
 
 Link: http://www.mistermotley.nl/art-everyday-life/de-kunstenaar-kan-alles
 
-
-## Uit : Transformaties, openingstekst door Alex de Vries bij de tentoonstelling van Lars Weller en Marit Dik, galerie Helder, Den Haag, 10 januari – 15 februari 2015
-
-[....] De cinematografische transformaties in het werk van Lars Weller vinden we op een andere manier terug in de schilderijen en de 3d collages van Marit Dik. Vooral die collages zijn gemaakt als een miniatuur-set voor een film. Je kunt je er hele scènes in voorstellen. Het zijn als het ware opengewerkte decors waarin camera’s vrijelijk kunnen bewegen om iedere gezichtshoek mogelijk te kunnen maken.
-De manier waarop deze collages functioneren, doet enigszins denken aan de werkwijze van Alfred Hitchcock voor zijn film ‘Rope’ uit 1948. Daarin duurde steeds iedere scène precies de tien minuten van een filmrol en wekte Hitchcock zelfs de suggestie van een onafgebroken opname door de overgangen tussen de filmrollen subtiel te maskeren.
-In die tijd waren de filmcamera’s nog zo groot dat ze niet door een deur konden, zodat Hitchcock genoodzaakt was een open decor te maken zodat de camera zelfs als het ware door de muren heen kon filmen en de acteurs overal kon volgen. Een bijzonderheid is dat ‘Rope’ de eerste kleurenfilm van Hitchcock was en dat het verhaal zich afspeelt rond een als tafel dienstdoende kist waarin een zojuist vermoorde jongeman is verborgen.
-Die morbiditeit is een vermoeden dat ogenschijnlijk in de collages van Marit Dik ontbreekt, maar bij nadere beschouwing is iedere scène die zij verbeeldt toch voorzien van een ongemakkelijkheid die onder de oppervlakte een gevoel van argwaan veroorzaakt. De op het oog illustratieve verhaalsequentie die Marit Dik verbeeldt, kent een aspect dat niet zozeer zichtbaar is, maar dat wel ieder moment kan worden ontdekt. In het werk van Marit Dik vraag je je voortdurend af: waar is het wachten op? Dat houdt ze buiten beeld, waardoor de manifestatie ervan des te nadrukkelijk is.
-Nog sterker dan voor haar collages geldt dat voor haar schilderijen, omdat je daarin niet om de dingen heen kunt kijken om alles van voor en achter te observeren. In haar schilderijen zien we het verborgene frontaal aan ons gepresenteerd. In het schilderij van een bijna naakt meisje laat Marit Dik haar twee appels tonen die ze voor haarborsten houdt. Alles aan dat tafereel oogt onschuldig en onverdacht. Toch is het een hoogst ongemakkelijk schilderij, omdat het zich uitspreekt over argeloosheid en doortraptheid, over bekoring en verzoeking, over verlegenheid en schaamteloosheid.
-
-Marit Dik zet nogal wat op het spel in haar werk. In de collages is dat spel vooral allegorie, metafoor en symbool, een sprookjesachtige verbeelding, een moraliteit zelfs. In haar schilderijen daarentegen zet ze zichzelf in, doordat ze haar kinderen en hun leeftijdsgenoten als model gebruikt om enerzijds te verbeelden waar het leven mank gaat, waar de maatschappij aan voorbij gaat, waar het bestaan ongerijmd is en anderzijds om te laten zien waar het geluk huist. Waar de collages je in hun rebus-achtige beeldtaal je goedmoedig op het verkeerde been zetten en op vrolijke wijze duidelijk maken dat je twee keer moet kijken voordat je weet wat je ziet, daar zijn haar schilderijen in hun menshoge gedaante een veel directere confrontatie met je persoonlijke onvermogen om met de onbarmhartigheid van menselijke tekortkomingen om te gaan en met je verlangen naar een onbekommerd bestaan. De schilderijen zetten je eerst op het verkeerde been door vrijwel consequent een jonge vrouw op te voeren die zich onmiddellijk bedreigd weet in haar lichamelijkheid. De principiële onaantastbaarheid daarvan houdt die bedreiging ervan per definitie in. Bij Marit Dik is er daarom geen sprake van een vertederende ingenue die als excuus voor een met vaseline ingesmeerde erotische aberratie dienst doet die we kennen uit de pornografische blik van de erotomaan, maar van een ongekunstelde, jeugdige vrouw die zich onwillekeurig verzet tegen de wijze waarop ze altijd en overal seksueel verdacht wordt gemaakt. Tegelijkertijd viert Marit Dik ook de zelfstandige seksualiteit van deze jeugdige vrouwen.
-In haar collages steekt ze er in de allegorische betekenis ervan enigszins de draak mee. Kom, er mag ook om gelachen worden, maar in haar schilderijen kan je dat lachen uiteindelijk alleen maar vergaan als je je rekenschap geeft van de navrante manier waarop deze geschilderde vrouwen op zichzelf worden aangewezen. Ze hebben een wereld te veroveren.
-
-
-Link: http://www.mistermotley.nl/art-everyday-life/transformaties
 
 
 
