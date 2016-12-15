@@ -4,7 +4,6 @@
 * [Een zachte vloeiende stroom ribbelt over het doek](#-een-zachte-vloeiende-stroom-ribbelt-over-het-doek)
 * [THIS IS A LOVESONG](#-this-is-a-lovesong)
 * [Mister Motley, mei 2015](#-mister-motley-mei-2015)
-* [
 
 # Avondlog Wim Noordhoek, 2015, "Marit Dik in de derde dimensie"
 
