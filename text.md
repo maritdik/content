@@ -27,6 +27,11 @@ Marit Dik bekijkt de wereld vanuit een mengeling van bekommernis en zorgelooshei
 
 Link: http://www.mistermotley.nl/art-everyday-life/de-kunstenaar-kan-alles
 
+
+---
+
+
+
 ## galerie Helder, Den Haag, 10 januari – 15 februari 2015
 
 ### Uit : Transformaties, openingstekst door Alex de Vries bij de tentoonstelling van Lars Weller en Marit Dik
@@ -44,6 +49,10 @@ In haar collages steekt ze er in de allegorische betekenis ervan enigszins de dr
 Link: http://www.mistermotley.nl/art-everyday-life/transformaties
 
 
+---
+
+
+
 ## Een zachte vloeiende stroom ribbelt over het doek. 
 De landschapschilderijen van Marit Dik nemen de kijker mee naar een serene plek, ver van de drukte van het leven van alledag. Vanuit een inspiratie uit de natuur en bekende alledaagse taferelen zijn het vaak kinderen die in haar grote abstracte en tegelijk figuratieve schilderijen op doek voorkomen. Haar werk verbeeldt scènes met een uiterst rustige atmosfeer en vangt tegelijkertijd een kort vluchtig moment. Hoewel, als je je blik laat dwalen merk je dat haar onderwerp niet zo letterlijk is als het lijkt. Was het een foto die haar inspireerde? Een herinnering aan een zomervakantie? En wat probeert Dik precies te pakken? Is het ware onderwerp in haar werk een verhaal of is het een moment in de tijd? Of zijn het vooral de gevoelens en emoties waar deze taferelen voor staan? 
 Dik bereikt een quasi idyllische sfeer zowel door de keuze van het onderwerp als door haar abstracte figuratieve stijl van schilderen. In de serie schilderijen uit 2006 en 2007 onderzoekt zij verhalen en scènes van kinderen die hangen, die spelen,....die gewoonweg in de buitenlucht rondhangen. Titels zoals Playground, Paradijs en Lezend in het Park zijn toespelingen op alledaagse activiteiten en momenten. De kinderen in haar werk kunnen worden beschouwd als een metafoor voor onschuld, verwijzend naar de voorseksuele fase van ontluikende adolescenten, vlak voor zij volwassen worden. Hun aanwezigheid zorgt voor een sfeer van harmonieuze nonchalance maar tegelijkertijd is er een toenemende spanning rond de naderende volwassenheid die in de nabije toekomst opdoemt. 
@@ -57,6 +66,7 @@ Het lijkt alsof de recente periode als artist-in-residence in ArToll, Duitsland 
 **Donna Wolf**
 *Vertaling van de door Donna Wolf geschreven tekst:” A gentle flowing pulse rippels across the canvas”, 2009*
 
+---
 
 ## THIS IS A LOVESONG 
 
