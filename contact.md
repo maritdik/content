@@ -1,5 +1,5 @@
 # You can contact me:
 
-info@maritdik.nl
+[info@maritdik.nl](mailto:info@maritdik.nl)
 
-Galerie Helder: www.galeriehelder.nl / info@galeriehelder.nl
+Galerie Helder: [www.galeriehelder.nl](www.galeriehelder.nl) / [info@galeriehelder.nl](mailto:info@galeriehelder.nl)
