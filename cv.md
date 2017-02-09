@@ -6,7 +6,7 @@ Education  | |
 1995-2000 |	NAU, Nieuwe Academie Utrecht, Utrecht 
 1976-1983 |	Psychologie, VU, Vrije Universiteit, Amsterdam 
 1983-2016 |	Werkzaam in deeltijd als psycholoog o.m. voor esdege-reigersdaal. NH
-Exhibitions  | 
+**Exhibitions**  | 
 2016 | Rundgang Spinnerei Leipzig, carpe plumbum
 	 | Galerie SANAA, Prix de Joop (winnaar) , Utrecht
 	 | Galerie Helder, den Haag www.galeriehelder.nl
@@ -64,7 +64,7 @@ Exhibitions  |
 2003 	| “Vensters”, Grote Sint Laurenskerk, Alkmaar
 2002 	| “REBUS”, project by Pygmalion, Alkmaar
 	| “They live happily ever after”, Helderse Kunstliga, Den Helder
-Activities/ residencies |
+**Activities/ residencies** |
 2016 | Artist-in residence, 5. Hochdruck Symposium Leipzig, BBKLeipzig en capre plumbum
 2015 | Artist-in residence, KiK Kolderveen  www.kik-site.nl 
 2012 | Artist-in residence, Leipzig International Art Program, Germany,  www.liap.eu 
@@ -77,7 +77,7 @@ Activities/ residencies |
 2007 | Curator, Family Matters, Kunsteyssen, Alkmaar (met Elles Jeurink)
 2007 | Initiatiefgroep Kunsteyssen Alkmaar
 2004 | Artist-in residence, Mirabel, Künstlerhaus Ziegelhütte Darmstadt, Germany,  www.kuenstlerhaus-ziegelhuette.de 
-Publications |
+**Publications** |
 2016 | catalogus De Gele Krant, MOTImuseum bij Van Gogh Mini’s
 2015 | Bij kunst kan toevallig alles, Alex de Vries, in: Uit de waan van de dag, 5 jaar Galerie Helder
 2015 | Eten en kunst gaan prettig samen, Nuel Gieles, Haarlems Dagblad
