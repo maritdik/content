@@ -23,9 +23,9 @@ Stel je voor: kleine schouwburgscenes uit absurde toneelstukken. Die ook surreal
 
 ### Uit De kunstenaar kan alles, Alex de Vries, bij de opening van OGENBLIKSEM #5 in galerie Sanaa
 
-Marit Dik bekijkt de wereld vanuit een mengeling van bekommernis en zorgeloosheid. Ze kan niet overal verantwoordelijkheid voor nemen, hoezeer wat haar haar omgeving ook overkomt haar ook ter harte gaat. In haar schilderijen en diorama’s is er sprake van een overweldiging die buiten haar omgaat. Het is een vorm van visitatie, een engel die een onmogelijke boodschap brengt, waaraan je bent gehouden te voldoen. Het lot van de mensheid rust op je schouders. Iemand strijkt met zijn hand lang je hele lichaam om te bevoelen wat je te verbergen hebt. Marit Dik brengt iets in de wereld waarom niet is gevraagd, maar wat ze wel te bieden heeft.
-
 Link: http://www.mistermotley.nl/art-everyday-life/de-kunstenaar-kan-alles
+
+Marit Dik bekijkt de wereld vanuit een mengeling van bekommernis en zorgeloosheid. Ze kan niet overal verantwoordelijkheid voor nemen, hoezeer wat haar haar omgeving ook overkomt haar ook ter harte gaat. In haar schilderijen en diorama’s is er sprake van een overweldiging die buiten haar omgaat. Het is een vorm van visitatie, een engel die een onmogelijke boodschap brengt, waaraan je bent gehouden te voldoen. Het lot van de mensheid rust op je schouders. Iemand strijkt met zijn hand lang je hele lichaam om te bevoelen wat je te verbergen hebt. Marit Dik brengt iets in de wereld waarom niet is gevraagd, maar wat ze wel te bieden heeft.
 
 
 ---
@@ -35,6 +35,8 @@ Link: http://www.mistermotley.nl/art-everyday-life/de-kunstenaar-kan-alles
 ## galerie Helder, Den Haag, 10 januari – 15 februari 2015
 
 ### Uit : Transformaties, openingstekst door Alex de Vries bij de tentoonstelling van Lars Weller en Marit Dik
+
+Link: http://www.mistermotley.nl/art-everyday-life/transformaties
 
 [....] De cinematografische transformaties in het werk van Lars Weller vinden we op een andere manier terug in de schilderijen en de 3d collages van Marit Dik. Vooral die collages zijn gemaakt als een miniatuur-set voor een film. Je kunt je er hele scènes in voorstellen. Het zijn als het ware opengewerkte decors waarin camera’s vrijelijk kunnen bewegen om iedere gezichtshoek mogelijk te kunnen maken.
 De manier waarop deze collages functioneren, doet enigszins denken aan de werkwijze van Alfred Hitchcock voor zijn film ‘Rope’ uit 1948. Daarin duurde steeds iedere scène precies de tien minuten van een filmrol en wekte Hitchcock zelfs de suggestie van een onafgebroken opname door de overgangen tussen de filmrollen subtiel te maskeren.
@@ -46,7 +48,6 @@ Marit Dik zet nogal wat op het spel in haar werk. In de collages is dat spel voo
 In haar collages steekt ze er in de allegorische betekenis ervan enigszins de draak mee. Kom, er mag ook om gelachen worden, maar in haar schilderijen kan je dat lachen uiteindelijk alleen maar vergaan als je je rekenschap geeft van de navrante manier waarop deze geschilderde vrouwen op zichzelf worden aangewezen. Ze hebben een wereld te veroveren.
 
 
-Link: http://www.mistermotley.nl/art-everyday-life/transformaties
 
 
 ---
