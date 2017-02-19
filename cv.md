@@ -5,7 +5,7 @@ Education  | |
 --------- | ---------
 1995-2000 |	NAU, Nieuwe Academie Utrecht, Utrecht 
 1976-1983 |	Psychologie, VU, Vrije Universiteit, Amsterdam 
-1983-2016 |	Werkzaam in deeltijd als psycholoog o.m. voor esdege-reigersdaal. NH
+1983-2016 |	Psycholoog o.m. voor esdege-reigersdaal. 
 **Exhibitions**  | 
 2016 | Rundgang Spinnerei Leipzig, carpe plumbum
 	 | Galerie SANAA, Prix de Joop (winnaar) , Utrecht
