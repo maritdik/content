@@ -9,8 +9,8 @@ Education  | |
 **Exhibitions**  | 
 2016 | Rundgang Spinnerei Leipzig, carpe plumbum
 	 | Galerie SANAA, Prix de Joop (winnaar) , Utrecht
-	 | Galerie Helder, den Haag www.galeriehelder.nl
-	 | MOTI-museum, Van Gogh Mini’s, Breda www.motimuseum.nl
+	 | Galerie Helder, den Haag 
+	 | MOTI-museum, Van Gogh Mini’s, Breda 
 	 | Kunsttraject, Staatsliedenbuurt, Amsterdam
 	 | Eerste Bergensche Boekhandel, Bergen
 	 | Uitgave “De Dagen” met Pauline Sparreboom
@@ -27,11 +27,11 @@ Education  | |
 	 | Der Wald verschlingt Dich, Epse
 	 | Rotterdam Contemporaiy Art Fair
 	 | Chaos in Beauty, KCB, Museum Kranenburgh, Bergen
-	 | Transformations, Galerie Helder, The Hague www.galeriehelder.nl 
+	 | Transformations, Galerie Helder, The Hague 
 2014 	| CBK Groningen, Nieuwe Collectie
 	| OGENBLIKSEM#2 Leiden
 	| OGENBLIKSEM, Utrecht
-	| Hommage (aan het Puttertje van Fabritius), www.hommage.nl
+	| Hommage (aan het Puttertje van Fabritius)
 	| Boterhal, 1001 Nights, tales of Eros, Hoorn
 	| Kunstcentrum, Voor jou (solo), Zaandam
 2013 	| Galerie Helder, The Ideal World, The Hague
@@ -64,19 +64,20 @@ Education  | |
 2003 	| “Vensters”, Grote Sint Laurenskerk, Alkmaar
 2002 	| “REBUS”, project by Pygmalion, Alkmaar
 	| “They live happily ever after”, Helderse Kunstliga, Den Helder
-**Activities/ residencies** |
-2016 | Artist-in residence, 5. Hochdruck Symposium Leipzig, BBKLeipzig en capre plumbum
-2015 | Artist-in residence, KiK Kolderveen  www.kik-site.nl 
+**Residencies** |
+2016 | Artist-in residence, 5. Hochdruck Symposium Leipzig, BBKLeipzig en capre plumbum, www.carpe-plumbum.de , www.bbkl.org
+2015 | Artist-in residence, KiK Kolderveen,  www.kik-site.nl 
 2012 | Artist-in residence, Leipzig International Art Program, Germany,  www.liap.eu 
-2012 - 2014 | Jurylid Rabobank Cultuurprijs, Alkmaar 
-2011 | kunstenaarstekst bij uitgave Loes Groothuis 
-2010-2011 |	Tentoonstellingscommissie, KCB, Bergen
-2010 | Curator Geestrijke Mens, KCB, Bergen
 2009 | Artist-in residence Artoll, Bedburg Hau ,Kleef, Germany, www.artoll.de 
 2009 | Artist-in residence Phoenicia, Hudsonriver400, USA
+2004 | Artist-in residence, Mirabel, Künstlerhaus Ziegelhütte Darmstadt, Germany,  www.kuenstlerhaus-ziegelhuette.de 
+**Other activities** |
+2012 - 2014 | Jurylid Rabobank Cultuurprijs, Alkmaar 
+2011 | kunstenaarstekst bij uitgave Loes Groothuis 
+2010 | Curator Geestrijke Mens, KCB, Bergen
+2010-2011 |	Tentoonstellingscommissie, KCB, Bergen
 2007 | Curator, Family Matters, Kunsteyssen, Alkmaar (met Elles Jeurink)
 2007 | Initiatiefgroep Kunsteyssen Alkmaar
-2004 | Artist-in residence, Mirabel, Künstlerhaus Ziegelhütte Darmstadt, Germany,  www.kuenstlerhaus-ziegelhuette.de 
 **Publications** |
 2016 | catalogus De Gele Krant, MOTImuseum bij Van Gogh Mini’s
 2015 | Bij kunst kan toevallig alles, Alex de Vries, in: Uit de waan van de dag, 5 jaar Galerie Helder
