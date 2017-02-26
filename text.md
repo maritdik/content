@@ -4,6 +4,7 @@
 * [Avondlog Wim Noordhoek, 2015](#avondlog-wim-noordhoek-2015-marit-dik-in-de-derde-dimensie-)
 * [Mister Motley, mei 2015](#mister-motley-mei-2015)
 * [galerie Helder, Den Haag, 2015](#galerie-helder-den-haag-2015)
+* [KunstNetTV, december 2015](#Alkmaarse-kunstenaar-Marit-Dik-verbeeldt-vluchtige-momenten)
 * [Een zachte vloeiende stroom ribbelt over het doek, 2009](#een-zachte-vloeiende-stroom-ribbelt-over-het-doek-2009)
 * [THIS IS A LOVESONG, 2009](#this-is-a-lovesong- 2009)
 
@@ -57,6 +58,7 @@ In haar collages steekt ze er in de allegorische betekenis ervan enigszins de dr
 ### Alkmaarse kunstenaar Marit Dik verbeeldt vluchtige momenten. 
 
 link: http://www.napproducties.nl/wp/?page_id=30
+
 
 
 ---
