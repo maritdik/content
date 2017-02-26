@@ -31,7 +31,6 @@ Marit Dik bekijkt de wereld vanuit een mengeling van bekommernis en zorgelooshei
 ---
 
 
-
 ## galerie Helder, Den Haag, 10 januari – 15 februari 2015
 
 ### Uit : Transformaties, openingstekst door Alex de Vries bij de tentoonstelling van Lars Weller en Marit Dik
@@ -52,6 +51,15 @@ In haar collages steekt ze er in de allegorische betekenis ervan enigszins de dr
 
 ---
 
+
+## KunstNetTV, 2015
+
+### Alkmaarse kunstenaar Marit Dik verbeeldt vluchtige momenten. 
+
+link: http://www.napproducties.nl/wp/?page_id=30
+
+
+---
 
 
 ## Een zachte vloeiende stroom ribbelt over het doek. 
