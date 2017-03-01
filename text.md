@@ -4,9 +4,9 @@
 * [Avondlog Wim Noordhoek, 2015](#avondlog-wim-noordhoek-2015-marit-dik-in-de-derde-dimensie-)
 * [Mister Motley, mei 2015](#mister-motley-mei-2015)
 * [galerie Helder, Den Haag, 2015](#galerie-helder-den-haag-10-januari-15-februari-2015)
-* [KunstNetTV, december 2015](#Alkmaarse-kunstenaar-Marit-Dik-verbeeldt-vluchtige-momenten)
+* [KunstNetTV, december 2015](#Alkmaarse-kunstenaar-Marit-Dik-verbeeldt-vluchtige-momenten-)
 * [Een zachte vloeiende stroom ribbelt over het doek, 2009](#een-zachte-vloeiende-stroom-ribbelt-over-het-doek-2009)
-* [THIS IS A LOVESONG, 2009](#this-is-a-lovesong- 2009)
+* [THIS IS A LOVESONG, 2009](#this-is-a-lovesong-2009)
 
 
 ## Avondlog Wim Noordhoek, 2015, "Marit Dik in de derde dimensie"
@@ -79,7 +79,7 @@ Het lijkt alsof de recente periode als artist-in-residence in ArToll, Duitsland 
 
 ---
 
-## THIS IS A LOVESONG 
+## THIS IS A LOVESONG, 2009
 
 ### artist-in-residency, Phoenicia, NY
 
