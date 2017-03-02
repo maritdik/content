@@ -3,8 +3,8 @@
 
 * [Avondlog Wim Noordhoek, 2015](#avondlog-wim-noordhoek-2015-marit-dik-in-de-derde-dimensie-)
 * [Mister Motley, mei 2015](#mister-motley-mei-2015)
-* [galerie Helder, Den Haag, 2015](#galerie-helder-den-haag-10-januari-15-februari-2015)
-* [KunstNetTV, december 2015](#Alkmaarse-kunstenaar-Marit-Dik-verbeeldt-vluchtige-momenten-)
+* [Galerie Helder, Den Haag, 2015](#galerie-helder-den-haag-10-januari-15-februari-2015)
+* [KunstNetTV, 2015](#KunstnetTV-2015-Alkmaarse-kunstenaar-Marit-Dik-verbeeldt-vluchtige-momenten)
 * [Een zachte vloeiende stroom ribbelt over het doek, 2009](#een-zachte-vloeiende-stroom-ribbelt-over-het-doek-2009)
 * [THIS IS A LOVESONG, 2009](#this-is-a-lovesong-2009)
 
@@ -32,12 +32,11 @@ Marit Dik bekijkt de wereld vanuit een mengeling van bekommernis en zorgelooshei
 ---
 
 
-## galerie Helder, Den Haag, 10 januari – 15 februari 2015
-
-### Uit : Transformaties, openingstekst door Alex de Vries bij de tentoonstelling van Lars Weller en Marit Dik
+## Galerie Helder, Den Haag, 10 januari – 15 februari 2015
 
 Link: http://www.mistermotley.nl/art-everyday-life/transformaties
 
+Uit : Transformaties, openingstekst door Alex de Vries bij de tentoonstelling van Lars Weller en Marit Dik:
 [....] De cinematografische transformaties in het werk van Lars Weller vinden we op een andere manier terug in de schilderijen en de 3d collages van Marit Dik. Vooral die collages zijn gemaakt als een miniatuur-set voor een film. Je kunt je er hele scènes in voorstellen. Het zijn als het ware opengewerkte decors waarin camera’s vrijelijk kunnen bewegen om iedere gezichtshoek mogelijk te kunnen maken.
 De manier waarop deze collages functioneren, doet enigszins denken aan de werkwijze van Alfred Hitchcock voor zijn film ‘Rope’ uit 1948. Daarin duurde steeds iedere scène precies de tien minuten van een filmrol en wekte Hitchcock zelfs de suggestie van een onafgebroken opname door de overgangen tussen de filmrollen subtiel te maskeren.
 In die tijd waren de filmcamera’s nog zo groot dat ze niet door een deur konden, zodat Hitchcock genoodzaakt was een open decor te maken zodat de camera zelfs als het ware door de muren heen kon filmen en de acteurs overal kon volgen. Een bijzonderheid is dat ‘Rope’ de eerste kleurenfilm van Hitchcock was en dat het verhaal zich afspeelt rond een als tafel dienstdoende kist waarin een zojuist vermoorde jongeman is verborgen.
@@ -55,8 +54,7 @@ In haar collages steekt ze er in de allegorische betekenis ervan enigszins de dr
 
 ## KunstNetTV, 2015
 
-### Alkmaarse kunstenaar Marit Dik verbeeldt vluchtige momenten. 
-
+**Alkmaarse kunstenaar Marit Dik verbeeldt vluchtige momenten **
 link: http://www.napproducties.nl/wp/?page_id=30
 
 
@@ -64,7 +62,7 @@ link: http://www.napproducties.nl/wp/?page_id=30
 ---
 
 
-## Een zachte vloeiende stroom ribbelt over het doek. 
+## Een zachte vloeiende stroom ribbelt over het doek, 2009. 
 De landschapschilderijen van Marit Dik nemen de kijker mee naar een serene plek, ver van de drukte van het leven van alledag. Vanuit een inspiratie uit de natuur en bekende alledaagse taferelen zijn het vaak kinderen die in haar grote abstracte en tegelijk figuratieve schilderijen op doek voorkomen. Haar werk verbeeldt scènes met een uiterst rustige atmosfeer en vangt tegelijkertijd een kort vluchtig moment. Hoewel, als je je blik laat dwalen merk je dat haar onderwerp niet zo letterlijk is als het lijkt. Was het een foto die haar inspireerde? Een herinnering aan een zomervakantie? En wat probeert Dik precies te pakken? Is het ware onderwerp in haar werk een verhaal of is het een moment in de tijd? Of zijn het vooral de gevoelens en emoties waar deze taferelen voor staan? 
 Dik bereikt een quasi idyllische sfeer zowel door de keuze van het onderwerp als door haar abstracte figuratieve stijl van schilderen. In de serie schilderijen uit 2006 en 2007 onderzoekt zij verhalen en scènes van kinderen die hangen, die spelen,....die gewoonweg in de buitenlucht rondhangen. Titels zoals Playground, Paradijs en Lezend in het Park zijn toespelingen op alledaagse activiteiten en momenten. De kinderen in haar werk kunnen worden beschouwd als een metafoor voor onschuld, verwijzend naar de voorseksuele fase van ontluikende adolescenten, vlak voor zij volwassen worden. Hun aanwezigheid zorgt voor een sfeer van harmonieuze nonchalance maar tegelijkertijd is er een toenemende spanning rond de naderende volwassenheid die in de nabije toekomst opdoemt. 
 Dit effect wordt versterkt door de formele eigenschappen van haar stijl van schilderen. Met dun aangebrachte acrylverf op linnen speelt zij een melodisch spel tussen verf en licht. Zoals de expressionistische schilders in het verleden, bijvoorbeeld Cezanne, vermijdt zij strakke lijnen. Daarvoor in de plaats kiest zij voor het maken van afzonderlijke vormen door het aanbrengen van losse vlekken verf. De afwezigheid van harde lijnen brengt beweging in haar schilderijen. Een zachte vloeiende stroom ribbelt over het doek. Dat effect wordt nog verder opgevoerd door het zorgvuldig aanbrengen van de verf om een suggestie op te roepen van filterende zonnestralen door de bomen, schijnend op verborgen plekken, het juiste moment pakkend. Het gebruik van verf als licht verhoogt ook het vluchtige van de handeling en van de bewegingen van de figuren. Het grote formaat van de schilderijen in combinatie met het open, close up zicht dat zij de kijker op het werk geeft, staat ons toe om de setting binnen te dringen zonder de zorgvuldig geconstrueerde harmonie te verstoren. Een open plek in het dichte bos geeft ons net genoeg licht om het tafereel waar te nemen zonder in overtreding te zijn. 
