@@ -1,5 +1,5 @@
 
-# Articles 
+# Selection of articles / media
 
 * [Avondlog Wim Noordhoek, 2015](#avondlog-wim-noordhoek-2015-marit-dik-in-de-derde-dimensie-)
 * [Mister Motley, mei 2015](#mister-motley-mei-2015)
