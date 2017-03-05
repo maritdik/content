@@ -1,5 +1,16 @@
 # You can contact me:
 
-[info@maritdik.nl](mailto:info@maritdik.nl),  or if you prefer, you can contact the gallery: 
+[info@maritdik.nl](mailto:info@maritdik.nl)
 
-Galerie Helder: [www.galeriehelder.nl](http://www.galeriehelder.nl) / [info@galeriehelder.nl](mailto:info@galeriehelder.nl)
+
+
+
+
+
+
+
+
+links:
+Galerie Helder: [www.galeriehelder.nl](http://www.galeriehelder.nl) 
+Webdesign: Stephan Bakker
+
