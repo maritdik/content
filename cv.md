@@ -65,12 +65,12 @@ Education  | |
 2002 	| REBUS, project by Pygmalion, Alkmaar
 	| They live happily ever after, Helderse Kunstliga, Den Helder
 **Residencies** |
-2016 | Artist-in residence, 5. Hochdruck Symposium Leipzig, BBKLeipzig en capre plumbum, www.carpe-plumbum.de , www.bbkl.org
-2015 | Artist-in residence, KiK Kolderveen,  www.kik-site.nl 
-2012 | Artist-in residence, Leipzig International Art Program, Germany,  www.liap.eu 
-2009 | Artist-in residence Artoll, Bedburg Hau, Kleef, Germany, www.artoll.de 
+2016 | Artist-in residence, 5. Hochdruck Symposium Leipzig, BBKLeipzig en capre plumbum, [www.carpe-plumbum.de](www.carpe-plumbum.de) , [www.bbkl.org](www.bbkl.org)
+2015 | Artist-in residence, KiK Kolderveen,  [www.kik-site.nl](www.kik-site.nl) 
+2012 | Artist-in residence, Leipzig International Art Program, Germany,  [www.liap.eu](www.liap.eu) 
+2009 | Artist-in residence Artoll, Bedburg Hau, Kleef, Germany, [www.artoll.de](www.artoll.de) 
 2009 | Artist-in residence Phoenicia, Hudsonriver400, USA
-2004 | Artist-in residence, Mirabel, Künstlerhaus Ziegelhütte Darmstadt, Germany,  www.kuenstlerhaus-ziegelhuette.de 
+2004 | Artist-in residence, Mirabel, Künstlerhaus Ziegelhütte Darmstadt, Germany,  [www.kuenstlerhaus-ziegelhuette.de](www.kuenstlerhaus-ziegelhuette.de) 
 **Activities** |
 2012 - 2014 | Jurylid Rabobank Cultuurprijs, Alkmaar 
 2011 | Kunstenaarstekst bij uitgave Loes Groothuis 
