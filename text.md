@@ -57,7 +57,7 @@ In haar collages steekt ze er in de allegorische betekenis ervan enigszins de dr
 
 ## Alkmaarse kunstenaar Marit Dik verbeeldt vluchtige momenten
 
-link: http://www.napproducties.nl/wp/?page_id=30
+link: http://www.kunstnet.tv/MaritDik2015.htm
 
 
 
