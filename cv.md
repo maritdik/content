@@ -5,11 +5,11 @@ Education  | |
 --------- | ---------
 1995-2000 |	NAU, Nieuwe Academie Utrecht, Utrecht 
 1976-1983 |	Psychologie, VU, Vrije Universiteit, Amsterdam 
-1983-2016 |	Psycholoog o.m. voor esdege-reigersdaal. 
+1983-2016 |	Psycholoog o.m. voor Esdégé-Reigersdaal. 
 **Exhibitions**  | 
 2016 | Rundgang Spinnerei Leipzig, carpe plumbum
 	 | Galerie SANAA, Prix de Joop (winnaar) , Utrecht
-	 | Galerie Helder, den Haag 
+	 | Galerie Helder, The Hague
 	 | MOTI-museum, Van Gogh Mini’s, Breda 
 	 | Kunsttraject, Staatsliedenbuurt, Amsterdam
 	 | Eerste Bergensche Boekhandel, Bergen
@@ -43,7 +43,7 @@ Education  | |
 2012 	| Somebody's Room, Leipzig, Germany
 	| Rundgang, Spinnerei, Leipzig, Germany
 	| Summerexhibition, LIA Leipzig, Germany
-	| Schunk* tentoonstelling/veiling, initiatief Pam Emmerik, Heerlen
+	| Schunk, tentoonstelling/veiling, initiatief Pam Emmerik, Heerlen
 	| Paviljoen Rotterdam, Rotterdam
 2011 	| Galerie Iris Cornelis Rotterdam 
 2010 	| Dwalen, CC De Bogaard, Sint Truiden , Belgium 
@@ -52,18 +52,18 @@ Education  | |
 	| Presentatie nieuw werk bij Van Laethem, kasteel Oud Rekem, Belgium	
 2008 	| Kunst & Koningsduin, Bakkum
 	| Betrekkelijk Rustig..., Kasteel Oud Rekem, Belgium 
-2007 	| “Ode”, Grafisch Atelier, Alkmaar
-	| “Family Matters”, Kunsteyssen, Alkmaar
-	| “Lovely, Shitty World”, Flatland Gallery, Utrecht
+2007 	| Ode aan de Hout, Grafisch Atelier, Alkmaar
+	| Family Matters, Kunsteyssen, Alkmaar
+	| Lovely, Shitty World, Flatland Gallery, Utrecht
 	| Van Laethem, Hasselt, Belgium 
-2006 	| “Hé!“, Vijzelgracht 50, Amsterdam
-	| “I talked to God in a phonebox on my way home”, Flatland Gallery, Utrecht
+2006 	| Hé!, Vijzelgracht 50, Amsterdam
+	| I talked to God in a phonebox on my way home, Flatland Gallery, Utrecht
 	| TNO, Defensie en Veiligheid (solo), The Hague
-2005 	| 	“Twee schilders”, Noordergeest, Heiloo
+2005 	| Twee schilders, Noordergeest, Heiloo
 2004 	| Mathildenhöhe, Darmstadt, Germany, Mirabel, France
-2003 	| “Vensters”, Grote Sint Laurenskerk, Alkmaar
-2002 	| “REBUS”, project by Pygmalion, Alkmaar
-	| “They live happily ever after”, Helderse Kunstliga, Den Helder
+2003 	| Vensters, Grote Sint Laurenskerk, Alkmaar
+2002 	| REBUS, project by Pygmalion, Alkmaar
+	| They live happily ever after, Helderse Kunstliga, Den Helder
 **Residencies** |
 2016 | Artist-in residence, 5. Hochdruck Symposium Leipzig, BBKLeipzig en capre plumbum, www.carpe-plumbum.de , www.bbkl.org
 2015 | Artist-in residence, KiK Kolderveen,  www.kik-site.nl 
@@ -73,13 +73,13 @@ Education  | |
 2004 | Artist-in residence, Mirabel, Künstlerhaus Ziegelhütte Darmstadt, Germany,  www.kuenstlerhaus-ziegelhuette.de 
 **Other activities** |
 2012 - 2014 | Jurylid Rabobank Cultuurprijs, Alkmaar 
-2011 | kunstenaarstekst bij uitgave Loes Groothuis 
+2011 | Kunstenaarstekst bij uitgave Loes Groothuis 
 2010 | Curator Geestrijke Mens, KCB, Bergen
 2010-2011 |	Tentoonstellingscommissie, KCB, Bergen
 2007 | Curator, Family Matters, Kunsteyssen, Alkmaar (met Elles Jeurink)
 2007 | Initiatiefgroep Kunsteyssen Alkmaar
 **Publications** |
-2016 | catalogus De Gele Krant, MOTImuseum bij Van Gogh Mini’s
+2016 | Catalogus De Gele Krant, MOTImuseum bij Van Gogh Mini’s
 2015 | Bij kunst kan toevallig alles, Alex de Vries, in: Uit de waan van de dag, 5 jaar Galerie Helder
 2015 | Eten en kunst gaan prettig samen, Nuel Gieles, Haarlems Dagblad
 2015 | Eten met je ogen: lekker en vies, Willem Tesselaar, Cleeft 
@@ -89,8 +89,8 @@ Education  | |
 2015 | Microworlds, Edwin van Onna, De selectioneur 
 2015 | Transformaties, MisterMotley
 2014 | Noord Hollands dagblad, Vanda de Haan, Ik heb veel beelden in mijn hoofd 
-2014 | catalogus Daar komen de putters, bij tentoonstelling in Keukenhof
-2014 | radiointerview nav Voor jou bij kunstcentrum Zaandam 
+2014 | Catalogus Daar komen de putters, bij tentoonstelling in Keukenhof
+2014 | Radiointerview nav Voor jou bij kunstcentrum Zaandam 
 2014 | De ideale wereld, Jegens en tevens
 2013 | Uitzending KunstNetTV: Alkmaarse kunstenares Marit Dik verbeeldt vluchtige momenten 
 2013 | The ideal world, Esther Didden, Jegens en tevens 
@@ -102,7 +102,7 @@ Education  | |
 2007 | Worstelen met je familie, Mark Minnema, Noord Hollands Dagblad
 2005 | Duotentoonstelling in “sloopkerk”, M. Dirkmaat-Planting, Noordhollands Dagblad
 2005 | Ontmoeting met…, Interview, Noor Sternheim
-2005 | catalogus tentoonstelling Local Art
+2005 | Catalogus tentoonstelling Local Art
 2004 | Die fantastischen Seiten des Alltags - Drei Künstlerinnenporträts, Anja Trieschmann, Darmstädter Echo
 2003 | Stoet vrouwen boven zwarte zerken, M. Dirkmaat-Planting, Noordhollands Dagblad
 2002 | Alkmaarse buren worden onthaald, O. Hoedeman, Noordhollands Dagblad
