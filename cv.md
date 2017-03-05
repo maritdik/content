@@ -68,10 +68,10 @@ Education  | |
 2016 | Artist-in residence, 5. Hochdruck Symposium Leipzig, BBKLeipzig en capre plumbum, www.carpe-plumbum.de , www.bbkl.org
 2015 | Artist-in residence, KiK Kolderveen,  www.kik-site.nl 
 2012 | Artist-in residence, Leipzig International Art Program, Germany,  www.liap.eu 
-2009 | Artist-in residence Artoll, Bedburg Hau ,Kleef, Germany, www.artoll.de 
+2009 | Artist-in residence Artoll, Bedburg Hau, Kleef, Germany, www.artoll.de 
 2009 | Artist-in residence Phoenicia, Hudsonriver400, USA
 2004 | Artist-in residence, Mirabel, Künstlerhaus Ziegelhütte Darmstadt, Germany,  www.kuenstlerhaus-ziegelhuette.de 
-**Other activities** |
+**Activities** |
 2012 - 2014 | Jurylid Rabobank Cultuurprijs, Alkmaar 
 2011 | Kunstenaarstekst bij uitgave Loes Groothuis 
 2010 | Curator Geestrijke Mens, KCB, Bergen
