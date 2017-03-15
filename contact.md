@@ -3,7 +3,7 @@
 ## [info@maritdik.nl](mailto:info@maritdik.nl)
 
 
-
+[linked-in](www.linkedin.com/in/marit-dik-artist)
 
 
 
