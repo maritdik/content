@@ -6,14 +6,7 @@
 
 ---
 
-Galerie Helder, Den Haag 
 
-[www.galeriehelder.com](www.galeriehelder.com) 
-
-
-
-
----
 
 Webdesign: Stephan Bakker
 
