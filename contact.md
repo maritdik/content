@@ -6,6 +6,11 @@
 
 ---
 
+links:
+
+[Galerie Helder, The Hague](www.galeriehelder.nl)
+
+
 
 
 Webdesign: Stephan Bakker
