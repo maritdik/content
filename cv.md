@@ -64,6 +64,8 @@ Education  | |
 2003 	| Vensters, Grote Sint Laurenskerk, Alkmaar
 2002 	| REBUS, project by Pygmalion, Alkmaar
 	| They live happily ever after, Helderse Kunstliga, Den Helder
+** Gallery** |
+Galerie Helder, The Hague, [http://www.galeriehelder.nl](http://galeriehelder.nl)
 **Residencies** |
 2016 | Artist-in residence, 5. Hochdruck Symposium Leipzig, BBKLeipzig en capre plumbum, [http://www.carpe-plumbum.de](http://www.carpe-plumbum.de) , [http://www.bbkl.org](http://www.bbkl.org)
 2015 | Artist-in residence, KiK Kolderveen,  [http://www.kik-site.nl](http://www.kik-site.nl) 
