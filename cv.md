@@ -70,7 +70,7 @@ Education  | |
 2012 | Artist-in residence, Leipzig International Art Program, Germany,  [http://www.liap.eu](http://www.liap.eu) 
 2009 | Artist-in residence Artoll, Bedburg Hau, Kleef, Germany, [http://www.artoll.de](http://www.artoll.de) 
 2009 | Artist-in residence Phoenicia, Hudsonriver400, USA
-2004 | Artist-in residence, Mirabel, Künstlerhaus Ziegelhütte Darmstadt, Germany,  [http://www.kuenstlerhaus-ziegelhuette.de](http://www.kuenstlerhaus-ziegelhuette.de) 
+2004 | Artist-in residence, Mirabel, Künstlerhaus Ziegelhütte Darmstadt, Germany,  [http://www.künstlerhaus-ziegelhütte.de](http://www.künstlerhaus-ziegelhütte.de) 
 **Activities** |
 2012 - 2014 | Jurylid Rabobank Cultuurprijs, Alkmaar 
 2011 | Kunstenaarstekst bij uitgave Loes Groothuis 
