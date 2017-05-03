@@ -10,9 +10,9 @@
 MARIT DIK | PETRA VAN DER STEEN | KIRSTEN BRÜNJES | BARBARA WITTEVEEN
 
 
-## Jonkergouw - Galerie BMB
+### Jonkergouw - Galerie BMB
 
-## Kerkstraat 129 A 1017 GE Amsterdam
+### Kerkstraat 129 A 1017 GE Amsterdam
 
 donderdag t/m zaterdag 12.30 – 17.30 uur en op afspraak | 25 mei gesloten
 
