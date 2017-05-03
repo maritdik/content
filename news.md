@@ -1,8 +1,6 @@
 
 
 
----
-![make my day](https://c1.staticflickr.com/5/4158/34434798435_1d36017762_m.jpg)
 
 
 
