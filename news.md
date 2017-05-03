@@ -16,7 +16,7 @@ MARIT DIK | PETRA VAN DER STEEN | KIRSTEN BRÜNJES | BARBARA WITTEVEEN
 
 donderdag t/m zaterdag 12.30 – 17.30 uur en op afspraak | 25 mei gesloten
 
-[www.jonkergouwkunstwerk.nl](www.jonkergouwkunstwerk.nl) | [www.galeriebmb.nl](www.galeriebmb.nl)
+[www.jonkergouwkunstwerk.nl](http://www.jonkergouwkunstwerk.nl) | [www.galeriebmb.nl](http://www.galeriebmb.nl)
 
 
 
