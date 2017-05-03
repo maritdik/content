@@ -1,22 +1,25 @@
 
 
----
-
-
-## NASTY WOMEN AMSTERDAM
-### March, 4 - 12 |  Gallery Josilda da Conceicao
-
-[Nasty Women Amsterdam](https://nastywomenamsterdam.wordpress.com)
-
 
 ---
 
 
-## Groepstentoonstelling
+## MAKE MY DAY
 
-### May 20 - July 1 | Galerie BMB | Jonkergouw 
-Kerkstraat 129A  
-1017 GE Amsterdam
+### 20 mei- 1 juli ; opening 20 mei 17.00 - 19.00 uur
+
+MARIT DIK | PETRA VAN DER STEEN | KIRSTEN BRÜNJES | BARBARA WITTEVEEN
+
+
+Jonkergouw - Galerie BMB
+
+Kerkstraat 129 A 1017 GE Amsterdam
+
+donderdag t/m zaterdag 12.30 – 17.30 uur en op afspraak | 25 mei gesloten
+
+www.jonkergouwkunstwerk.nl | www.galeriebmb.nl
+
+
 
 
 ---
