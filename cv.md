@@ -7,8 +7,9 @@ Education  | |
 1976-1983 |	Psychologie, VU, Vrije Universiteit, Amsterdam 
 1983-2016 |	Psycholoog o.m. voor Esdégé-Reigersdaal. 
 **Exhibitions**  | 
+2017 | Nasty Women, Josilda da Conceição Gallery, Amsterdam
 2016 | Rundgang Spinnerei Leipzig, carpe plumbum
-	 | Galerie SANAA, Prix de Joop (winnaar) , Utrecht
+	 | Galerie SANAA, Prix de Joop (winnaar), Utrecht
 	 | Galerie Helder, The Hague
 	 | MOTI-museum, Van Gogh Mini’s, Breda 
 	 | Kunsttraject, Staatsliedenbuurt, Amsterdam
