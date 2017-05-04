@@ -25,7 +25,7 @@ donderdag t/m zaterdag 12.30 – 17.30 uur en op afspraak | 25 mei gesloten
 ---
 
 
-## Presentation Graphic Symposium #5
+## Ergebnisausstellung 5. HochdruckGrafik-Symposium edition carpe plumbum
 
 Kollektiv Tod Verlag, Chelsea Mortenson, Jens Schubert, Marit Dik
 
