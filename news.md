@@ -27,6 +27,13 @@ donderdag t/m zaterdag 12.30 – 17.30 uur en op afspraak | 25 mei gesloten
 
 ## Presentation Graphic Symposium #5
 
+Kollektiv Tod Verlag, Chelsea Mortenson, Jens Schubert, Marit Dik
+
+Vernissage: 
+Freitag, 02. Juni, 19 Uhr
+
 ### June, 2 -24 | BUND BILDENDER KÜNSTLER LEIPZIG e.V.
 Tapetenwerk I Haus K
 Lützner Str. 91 I 04177 Leipzig
+
+[www.bbkl.org](http://www.bbkl.org)
