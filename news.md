@@ -1,5 +1,15 @@
 
 
+---
+
+
+## OGENBLIKSEM#7 
+
+Een editie met Jonas Vansteenkiste
+
+### 27 juli - 30 juli ; finissage 30 juli met slotwoord door Kristien Hemmerechts
+
+### Shoobil, Antwerpen (BE)
 
 ---
 
