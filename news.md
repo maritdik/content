@@ -2,51 +2,27 @@
 
 ---
 
-
-## OGENBLIKSEM#7 
+## OGENBLIKSEM #7 
 
 Een editie met Jonas Vansteenkiste
 
-### 27 juli - 30 juli ; finissage 30 juli met slotwoord door Kristien Hemmerechts
+### 27 juli - 30 juli ; finissage 30 juli met om 15 uur een slotwoord door Kristien Hemmerechts
 
-### Shoobil, Antwerpen (BE)
+Margo van Berkum | Dick van Berkum | Marit Dik | Rosa Everts | Harm Hajonides | Sabine Liedtke | Marisa Rappard | PJ Roggeband | Chantal Breukers | Jans Muskee | Jonas Vansteenkiste.
 
----
+Mijn bijdrage zal bestaan uit enkele kleine 3Dcollages/diorama's.
 
-
-## MAKE MY DAY
-
-### 20 mei- 1 juli ; opening 20 mei 17.00 - 19.00 uur
-
-MARIT DIK | PETRA VAN DER STEEN | KIRSTEN BRÜNJES | BARBARA WITTEVEEN
-
-
-### Jonkergouw - Galerie BMB
-
-### Kerkstraat 129 A 1017 GE Amsterdam
-
-donderdag t/m zaterdag 12.30 – 17.30 uur en op afspraak | 25 mei gesloten
-
-[www.jonkergouwkunstwerk.nl](http://www.jonkergouwkunstwerk.nl) | [www.galeriebmb.nl](http://www.galeriebmb.nl)
-
-
-
+### Shoobil galerie: [www.shoobil.be](www.shoobil.be) Museumstraat 4 in Antwerpen. 
 
 ---
 
+## Marit Dik / Rolina Nell
 
-## Ergebnisausstellung 5. HochdruckGrafik-Symposium edition carpe plumbum
+### 3 september - 14 oktober | Galerie Hommes Rotterdam
 
-Kollektiv Tod Verlag, Chelsea Mortenson, Jens Schubert, Marit Dik
+Opening zondag 3 september 15.00 uur ; finissage 14 oktober 17.00 tot 19.00 uur
 
-Vernissage: 
-Freitag, 02. Juni, 19 Uhr
+(gesloten 5,6,7 oktober ivm Art The Hague)
 
-### June, 2 -24 | BUND BILDENDER KÜNSTLER LEIPZIG e.V.
-Tapetenwerk I Haus K
-Lützner Str. 91 I 04177 Leipzig
+### galerie Hommes: [www.hommes.nl](www.hommes.nl)
 
-[www.bbkl.org](http://www.bbkl.org)
-
-
----
