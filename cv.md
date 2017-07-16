@@ -8,8 +8,8 @@ Education  | |
 1983-2016 |	Psycholoog o.m. voor Esdégé-Reigersdaal. 
 **Exhibitions**  | 
 2017 |  Jonkergouw KunstWerk/BMB, Make my day, Amsterdam
-        |Ergebnisausstellung 5. HochdruckGrafik-Symposium edition carpe plumbum, Tapetenwerk, BBKL, Leipzig
-        |Nederland en Belgie kruisen de degens, De Fabriek, Eindhoven
+        | Ergebnisausstellung 5. HochdruckGrafik-Symposium edition carpe plumbum, Tapetenwerk, BBKL, Leipzig
+        | Nederland en Belgie kruisen de degens, De Fabriek, Eindhoven
 	| Nasty Women, Josilda da Conceição Gallery, Amsterdam
 2016 | Rundgang Spinnerei Leipzig, carpe plumbum
 	 | Galerie SANAA, Prix de Joop (winnaar), Utrecht
