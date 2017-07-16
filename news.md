@@ -18,11 +18,11 @@ Mijn bijdrage zal bestaan uit enkele kleine 3Dcollages/diorama's.
 
 ## Marit Dik / Rolina Nell
 
-### 3 september - 14 oktober | Galerie Hommes Rotterdam
+### 3 september - 14 oktober | galerie Hommes Rotterdam
 
 Opening zondag 3 september 15.00 uur ; finissage 14 oktober 17.00 tot 19.00 uur
 
-(gesloten 5,6,7 oktober ivm Art The Hague)
+(gesloten 5 ,6 ,7 oktober ivm Art The Hague)
 
 ### galerie Hommes: [www.hommes.nl](www.hommes.nl)
 
