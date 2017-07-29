@@ -12,7 +12,9 @@ Margo van Berkum | Dick van Berkum | Marit Dik | Rosa Everts | Harm Hajonides | 
 
 Mijn bijdrage zal bestaan uit enkele kleine 3Dcollages/diorama's.
 
-### Shoobil galerie: [http://www.shoobil.be](http://www.shoobil.be) Museumstraat 4 in Antwerpen. 
+### Shoobil galerie, Museumstraat 4, Antwerpen
+
+! [http://shoobil.be](http://shoobil.be)
 
 ---
 
