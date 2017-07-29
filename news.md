@@ -10,8 +10,6 @@ Een editie met Jonas Vansteenkiste
 
 Margo van Berkum | Dick van Berkum | Marit Dik | Rosa Everts | Harm Hajonides | Sabine Liedtke | Marisa Rappard | PJ Roggeband | Chantal Breukers | Jans Muskee | Jonas Vansteenkiste.
 
-Mijn bijdrage zal bestaan uit enkele kleine 3Dcollages/diorama's.
-
 ### Shoobil galerie, Museumstraat 4, Antwerpen
 
 [http://shoobil.be](http://shoobil.be)
