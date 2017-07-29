@@ -18,6 +18,8 @@ Margo van Berkum | Dick van Berkum | Marit Dik | Rosa Everts | Harm Hajonides | 
 
 ## Marit Dik / Rolina Nell
 
+een duotentoonstelling
+
 ### 2 september - 14 oktober
 
 ( gesloten 5 ,6 ,7 oktober ivm Art The Hague )
