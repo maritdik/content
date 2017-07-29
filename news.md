@@ -24,5 +24,7 @@ Mijn bijdrage zal bestaan uit enkele kleine 3Dcollages/diorama's.
 
 ( gesloten 5 ,6 ,7 oktober ivm Art The Hague )
 
-### galerie Hommes: [http://www.hommes.nl](http://www.hommes.nl)
+###    Hommes galerie voor hedendaagse kunst, Charloisse Kerksingel 14, 3082 DA Rotterdam
+
+[http://www.hommes.nl](http://www.hommes.nl)
 
