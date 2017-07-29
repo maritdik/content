@@ -22,7 +22,7 @@ Mijn bijdrage zal bestaan uit enkele kleine 3Dcollages/diorama's.
 
 ### 2 september - 14 oktober | galerie Hommes Rotterdam
 
-(gesloten 5 ,6 ,7 oktober ivm Art The Hague)
+( gesloten 5 ,6 ,7 oktober ivm Art The Hague )
 
 ### galerie Hommes: [http://www.hommes.nl](http://www.hommes.nl)
 
