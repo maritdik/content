@@ -1,19 +1,4 @@
 
-
----
-
-## OGENBLIKSEM #7 
-
-Een editie met Jonas Vansteenkiste
-
-### 27 juli - 30 juli ; finissage 30 juli met om 15 uur een slotwoord door Kristien Hemmerechts
-
-Margo van Berkum | Dick van Berkum | Marit Dik | Rosa Everts | Harm Hajonides | Sabine Liedtke | Marisa Rappard | PJ Roggeband | Chantal Breukers | Jans Muskee | Jonas Vansteenkiste.
-
-### Shoobil galerie, Museumstraat 4, Antwerpen
-
-[http://shoobil.be](http://shoobil.be)
-
 ---
 
 ## Marit Dik / Rolina Nell
