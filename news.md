@@ -18,7 +18,11 @@ Finissage 14 oktober 17.00 tot 19.00 uur
 
 ![](https://farm5.staticflickr.com/4442/36222482783_560390f614.jpg)
 
+
 ---
+
+
+
 
 ### Tekst door Joost Pollmann naar aanleiding van een atelierbezoek, augustus 2017
 
