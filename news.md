@@ -22,9 +22,10 @@ Finissage 14 oktober 17.00 tot 19.00 uur
 
 
 
-### Tekst door Joost Pollmann naar aanleiding van een atelierbezoek, augustus 2017
 
 ## Illusie in schuim
+
+### door Joost Pollmann naar aanleiding van een atelierbezoek, augustus 2017
 
 >"Een diorama (ook: kijkkast) is een (vaak museale) opstelling waarbij voorwerpen zodanig staan opgesteld dat er een indruk van een mogelijke werkelijkheid wordt getoond. Voorbeelden: de uitbeelding van een bepaalde biotoop — een opgestopte vos met een konijn in zijn bek en op een boomstronk met takken enkele vogels." Bron: Wikipedia.
 
