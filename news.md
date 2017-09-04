@@ -20,7 +20,7 @@ Finissage 14 oktober 17.00 tot 19.00 uur
 
 ---
 
-### een tekst door Joost Pollmann naar aanleiding van een atelierbezoek, augustus 2017
+### Tekst door Joost Pollmann naar aanleiding van een atelierbezoek, augustus 2017
 
 ## Illusie in schuim
 
