@@ -24,9 +24,6 @@ Wat Diks diorama's compleet maakt is iets wat je niet ziet, niet bewust althans:
 *Joost Pollmann*
 
 
-<a data-flickr-embed="true"  href="https://www.flickr.com/gp/142067970@N07/1fQ786" title="Untitled (bathtub) | 2015"><img src="https://farm8.staticflickr.com/7427/27542796664_536c833e20_c.jpg" width="800" height="600" alt="Untitled (bathtub) | 2015"></a>
-
-
 ---
 
 
