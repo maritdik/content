@@ -1,13 +1,11 @@
 
 ---
 
-## Marit Dik / Rolina Nell
-
-Een duotentoonstelling
+## MARIT DIK / ROLINA NELL
 
 ### 2 september - 14 oktober
 
-Opening op zaterdag 2 september vanaf 17.00 uur door Rianne Makkink, Studio Makkink & Bey, Rotterdam/Kraggenburg. 
+> Opening op zaterdag 2 september vanaf 17.00 uur door Rianne Makkink, Studio Makkink & Bey, Rotterdam/Kraggenburg. 
 Op zondag 3 september open van 15.00 tot 18.00 uur.
 Finissage 14 oktober 17.00 tot 19.00 uur
 
