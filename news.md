@@ -1,4 +1,19 @@
 
+## Art For Animals Sake 
+
+### 6 - 15 October
+
+Spaarndammerstraat 460C, 1013SZ, Amsterdam, The Netherlands
+
+Opening Hours: 12 AM - 6 PM , official opening Friday October 6th, at 7 PM (to 11 PM)
+
+[https://art-for-animals-sake.com](https://art-for-animals-sake.com/artists/)
+
+![](https://farm5.staticflickr.com/4347/36292423540_8500d1431a_n.jpg)
+
+
+
+
 ---
 
 ## MARIT DIK / ROLINA NELL
