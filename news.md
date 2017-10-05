@@ -23,7 +23,7 @@ Opening Hours: 12 AM - 6 PM , official opening Friday October 6th, at 7 PM (to 1
 Opening op zaterdag 2 september vanaf 17.00 uur door Rianne Makkink, Studio Makkink & Bey, Rotterdam/Kraggenburg. 
 Finissage 14 oktober 17.00 tot 19.00 uur
 
-### ! Ivm Art the Hague is de galerie is tussen 4 en 8 oktober alleen op afspraak open !
+*! Ivm Art the Hague is de galerie tussen 4 en 8 oktober alleen op afspraak open !*
 
 ###    Hommes galerie voor hedendaagse kunst, Charloisse Kerksingel 14, 3082 DA Rotterdam
 
