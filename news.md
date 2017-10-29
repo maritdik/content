@@ -1,4 +1,15 @@
 
+
+## Uit het raam vliegen
+
+### AVONDLOG door Wim Noordhoek
+
+[http://www.avondlog.nl](http://www.avondlog.nl/blog-item/uit-het-raam-vliegen)
+
+![](https://farm5.staticflickr.com/4426/36548438701_6c6ac66501_n.jpg)
+
+---
+
 ## Art For Animals Sake 
 
 ### 6 - 15 October
