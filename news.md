@@ -1,9 +1,14 @@
 
 
-## Uit het raam vliegen
+## AVONDLOG door Wim Noordhoek
 
-### AVONDLOG door Wim Noordhoek
+### Uit het raam vliegen - zondag 15 oktober 2017 - 13:26
 
+Kreeg weer de kans de kijkdozen, de open doekjes - hoe noem je ze? - van Marit Dik van nabij te zien. Ze doen denken aan wat ik weet van de 'tableaux vivants' uit de 18de en 19de eeuw, de voorgangers van de bloemencorso's en jawel, de 'living statues' van nu.
+ In de oude tijden werden zo bijbelpassages - Franciscus van Assisi deed het al - of his­torische gebeurtenissen uitgebeeld.
+ Alleen bij Marit Dik leven de figuren niet, ze heeft ze bij elkaar geknipt en in decors gezet. Wat je ziet zijn bevroren scenes uit vreemde toneelstukken. Maar dan vele malen verkleind. Met zorgvuldig uitgewerkte mini-decors.
+ Als kijker steek je je reuzenhoofd met camera in zo'n scene. En merkt dat die er van alle kanten, van boven van onder, van opzij, steeds weer anders uitziet. De voorstellingen beginnen te leven. Je gaat je er dialogen bij voorstellen, hoewel ze allemaal 'ohne Worte' zijn. Alleen een enkele titel verklapt wat, zoals 'Make my day (the kitchen)' of 'Uit het raam vliegen'. Er ontstaat een multidimensionale film.
+ 
 [http://www.avondlog.nl](http://www.avondlog.nl/blog-item/uit-het-raam-vliegen)
 
 ![](https://farm5.staticflickr.com/4426/36548438701_6c6ac66501_n.jpg)
