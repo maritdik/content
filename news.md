@@ -1,4 +1,25 @@
 
+## BLIND DATE 
+DAK at Lloyd Hotel Amsterdam
+
+### 21 december, 17.00- 21.00
+
+![](https://farm5.staticflickr.com/4536/38216145334_e42eb536fa_z.jpg)
+
+---
+
+## Salon Arti et Amicitiae
+
+### 2 december 2017 -  7 januari 2018
+
+Rokin 112, 1012 LB Amsterdam
+
+[http://www.arti.nl](http://www.arti.nl)
+
+![](https://farm5.staticflickr.com/4575/38216153264_fe2067b64a_m.jpg)
+
+---
+
 
 ## AVONDLOG door Wim Noordhoek
 
