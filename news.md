@@ -1,7 +1,7 @@
 
-## BLIND DATE, DAK, Lloyd Hotel Amsterdam
+## Blind Date (DAK), Lloyd Hotel Amsterdam
 
-### 21 december, 17.00- 21.00
+### 21 december, 17.00 h- 21.00 h
 
 ![](https://farm5.staticflickr.com/4536/38216145334_e42eb536fa_z.jpg)
 
