@@ -1,5 +1,5 @@
 
-## BLIND DATE, Lloyd Hotel Amsterdam
+## BLIND DATE, DAK, Lloyd Hotel Amsterdam
 
 ### 21 december, 17.00- 21.00
 
