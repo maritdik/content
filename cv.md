@@ -7,7 +7,8 @@ Education  | |
 1976-1983 |	Psychologie, VU, Vrije Universiteit, Amsterdam 
 1983-2016 |	Psycholoog o.m. voor Esdégé-Reigersdaal. 
 **Exhibitions**  | 
-2017 |  Galerie Hommes, Marit Dik/ Rolina Nell, Rotterdam
+2017 |  DAK, Blind Date, Loyd Hotel Amaterdam
+	| Galerie Hommes, Marit Dik/ Rolina Nell, Rotterdam
 	| Shoobil Galerie, OGENBLIKSEM #7, Antwerpen
 	| Jonkergouw KunstWerk/BMB, Make my day, Amsterdam
         | Ergebnisausstellung 5. HochdruckGrafik-Symposium edition carpe plumbum, Tapetenwerk, BBKL, Leipzig
