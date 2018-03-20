@@ -7,7 +7,7 @@
 
 20 - 28 april 2018 , opening 19 april
 
-http://www.studioseine.nl/Studio_Seine/index.html
+http://www.studioseine.nl
 
 ---
 
