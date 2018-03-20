@@ -1,12 +1,24 @@
 
 # Selection of articles / media
 
+* [Avondlog Wim Noordhoek, 2017](#avondlog-wim-noordhoek-2017)
 * [Avondlog Wim Noordhoek, 2015](#avondlog-wim-noordhoek-2015-marit-dik-in-de-derde-dimensie-)
 * [Mister Motley, mei 2015](#mister-motley-mei-2015)
 * [Galerie Helder, Den Haag, 2015](#galerie-helder-den-haag-10-januari-15-februari-2015)
 * [KunstNetTV, 2015](#KunstnetTV-2015-Alkmaarse-kunstenaar-Marit-Dik-verbeeldt-vluchtige-momenten)
 * [Een zachte vloeiende stroom ribbelt over het doek, 2009](#een-zachte-vloeiende-stroom-ribbelt-over-het-doek-2009)
 * [THIS IS A LOVESONG, 2009](#this-is-a-lovesong-2009)
+
+
+---
+
+## Avondlog Wim Noordhoek, 2017 
+
+Uit het raam vliegen - zondag 15 oktober 2017 
+
+link: http://www.avondlog.nl/blog-item/uit-het-raam-vliegen
+
+Kreeg weer de kans de kijkdozen, de open doekjes - hoe noem je ze? - van Marit Dik van nabij te zien. Ze doen denken aan wat ik weet van de 'tableaux vivants' uit de 18de en 19de eeuw, de voorgangers van de bloemencorso's en jawel, de 'living statues' van nu. In de oude tijden werden zo bijbelpassages - Franciscus van Assisi deed het al - of his­torische gebeurtenissen uitgebeeld. Alleen bij Marit Dik leven de figuren niet, ze heeft ze bij elkaar geknipt en in decors gezet. Wat je ziet zijn bevroren scenes uit vreemde toneelstukken. Maar dan vele malen verkleind. Met zorgvuldig uitgewerkte mini-decors. Als kijker steek je je reuzenhoofd met camera in zo'n scene. En merkt dat die er van alle kanten, van boven van onder, van opzij, steeds weer anders uitziet. De voorstellingen beginnen te leven. Je gaat je er dialogen bij voorstellen, hoewel ze allemaal 'ohne Worte' zijn. Alleen een enkele titel verklapt wat, zoals 'Make my day (the kitchen)' of 'Uit het raam vliegen'. Er ontstaat een multidimensionale film.
 
 
 ---
