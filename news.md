@@ -1,13 +1,15 @@
 
 ---
 
-## Studio Seine, Rotterdam
+## Galerie Hommes
 
-### OGENBLIKSEM#8 : Multiples
+### Waited for the Fish Corner
 
-20 - 28 april 2018 , opening 19 april
+6 juli t/m 8 september 2018, opening 6 juli 19.00 uur
 
-http://www.studioseine.nl
+(In de maand augusus alleen op afspraak)
+
+[www.galeriehommes.nl](http://www.hommes.nl)
 
 ---
 
