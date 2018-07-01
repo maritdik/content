@@ -7,6 +7,7 @@ Education  | |
 1976-1983 |	Psychologie, VU, Vrije Universiteit, Amsterdam 
 1983-2016 |	Psycholoog o.m. voor Esdégé-Reigersdaal. 
 **Exhibitions**  | 
+2018 | OGENBLIKSEM #8, Studio Seine, Rotterdam
 2017 |  DAK, Blind Date IV, Lloyd Hotel Amsterdam
 	| Salon Arti et Amicitiae, Amsterdam
 	| Galerie Hommes, Marit Dik/ Rolina Nell, Rotterdam
