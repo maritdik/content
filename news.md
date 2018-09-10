@@ -7,7 +7,8 @@
 
 Op de industriele lokatie van Studio Omstand, in een voormalig electriciteitsgebouw in Arnhem, vindt de 9e OGENBLIKSEM plaats. 
 
-Chantal Breukers | Dick van Berkum | Harm Hajonides | Jans Muskee | Margo van Berkum | Marisa Rappard | Marit Dik | PJ Roggeband | Sabine Liedtke | Serge Onnen (gastkunstenaar)
+Chantal Breukers | Dick van Berkum | Harm Hajonides | Jans Muskee | Margo van Berkum | 
+Marisa Rappard | Marit Dik | PJ Roggeband | Sabine Liedtke | Serge Onnen (gastkunstenaar)
 
 Studio Omstand
 Van Oldebarneveldtstraat 92 A
