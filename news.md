@@ -12,9 +12,6 @@ Chantal Breukers | Dick van Berkum | Harm Hajonides | Jans Muskee | Margo van Be
 Marisa Rappard | Marit Dik | PJ Roggeband | Sabine Liedtke | Serge Onnen (gastkunstenaar)
 
 
-Van 6 t/m 28 oktober en is open op zaterdag en zondag van 12.00 tot 17.00 uur en op afspraak (info@omstand.nl)
-
-
 Studio Omstand
 
 Van Oldebarneveldtstraat 92 A
