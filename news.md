@@ -33,7 +33,11 @@ open za/zo 12 - 17.00 en op afspraak (info@omstand.nl)
 
 ### 9 oktober - 2 december 2018 
 
-http://www.kranenburgh.nl/kcb
+In de villa van Museum Kranenburgh in Bergen organiseert het KCB de tentoonstelling DE MENS, van Mona Lisa tot selfie. 
+
+[www.kranenburgh.nl/kcb](http://www.kranenburgh.nl/kcb)
+
+[www.kunstnaarscentrumbergen.nl](https://www.kunstenaarscentrumbergen.nl)
 
 ---
 
