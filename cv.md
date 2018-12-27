@@ -7,8 +7,10 @@ Education  | |
 1976-1983 |	Psychologie, VU, Vrije Universiteit, Amsterdam 
 1983-2016 |	Psycholoog o.m. voor Esdégé-Reigersdaal. 
 **Exhibitions**  | 
-2018 | Galerie Hommes, Waited for the fish corner, Rotterdam
-	|OGENBLIKSEM #8, Studio Seine, Rotterdam
+2018 | KCB, De Mens, van Mona Lisa tot selfie, Bergen
+	| Studio Omstand, OGENBLIKSEM #9 / Pulse 30, Arnhem
+	| Galerie Hommes, Waited for the fish corner, Rotterdam
+	| Studio Seine, OGENBLIKSEM #8, Rotterdam
 2017 |  DAK, Blind Date IV, Lloyd Hotel Amsterdam
 	| Salon Arti et Amicitiae, Amsterdam
 	| Galerie Hommes, Marit Dik/ Rolina Nell, Rotterdam
