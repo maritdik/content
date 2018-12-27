@@ -91,6 +91,8 @@ Education  | |
 2007 | Curator, Family Matters, Kunsteyssen, Alkmaar (met Elles Jeurink)
 2007 | Initiatiefgroep Kunsteyssen Alkmaar
 **Publications** |
+2018 | IN: Oog voor Detail: Verende druppels, Wieteke van Zeil, De Volkskrant
+2017 | Uit het raam vliegen, Wim Noordhoek, Avondlog
 2016 | Catalogus De Gele Krant, MOTImuseum bij Van Gogh Mini’s
 2015 | Bij kunst kan toevallig alles, Alex de Vries, in: Uit de waan van de dag, 5 jaar Galerie Helder
 2015 | Eten en kunst gaan prettig samen, Nuel Gieles, Haarlems Dagblad
