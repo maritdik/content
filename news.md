@@ -1,45 +1,28 @@
 
-## OGENBLIKSEM #9 / Pulse 30
+## Salon Arti et Amicitiae
 
-### Studio Omstand Arnhem
+### 22 december 2018 t/m 23 januari 2019
 
-### opening 6 oktober 2018 om 16.00 uur
+Rokin 112, 1012 LB Amsterdam
 
-
-Op de industriele lokatie van Studio Omstand, in een voormalig electriciteitsgebouw in Arnhem, vindt de 9e OGENBLIKSEM plaats. 
-
-Chantal Breukers | Dick van Berkum | Harm Hajonides | Jans Muskee | Margo van Berkum | 
-Marisa Rappard | Marit Dik | PJ Roggeband | Sabine Liedtke | Serge Onnen (gastkunstenaar)
-
-
-Studio Omstand
-
-Van Oldebarneveldtstraat 92 A
-
-6827 AN Arnhem
-
-open za/zo 12 - 17.00 en op afspraak (info@omstand.nl)
-
-[www.omstand.nl](http://www.omstand.nl)
-
----
-
-## DE MENS - Van Mona Lisa tot selfie
-
-### KCB in Museum Kranenburgh Bergen NH
-
-### 9 oktober - 2 december 2018 
-
-In de villa van Museum Kranenburgh in Bergen organiseert het KCB de tentoonstelling DE MENS, van Mona Lisa tot selfie. 
-
-[www.kranenburgh.nl/kcb](http://www.kranenburgh.nl/kcb)
-
-[www.kunstnaarscentrumbergen.nl](https://www.kunstenaarscentrumbergen.nl)
+[www.arti.nl](https://www.arti.nl/tentoonstelling/salon-2018/)
 
 ---
 
 ## Leipzig, Spinnerei
 
-Buitenlandse werkperiode begin 2019
+### 15/1 - 17/2 2019
 
 [www.spinnerei.de](http://www.spinnerei.de)
+
+---
+
+## ARCADISCHE BRIES
+
+Duo-expositie met Anne Marie Spijker 
+
+### 27 februari t/m 3 maart 2019
+
+Schoutenstraat 10, 3512 GB Utrecht
+
+Borrel en openingswoord door Paul Klemann: 27 februari, 17.00 uur 
