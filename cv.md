@@ -7,7 +7,9 @@ Education  | |
 1976-1983 |	Psychologie, VU, Vrije Universiteit, Amsterdam 
 1983-2016 |	Psycholoog o.m. voor Esdégé-Reigersdaal. 
 **Exhibitions**  | 
-2018 | KCB, De Mens, van Mona Lisa tot selfie, Bergen
+2019 | Werkperiode jan/feb Leipzig, Spinnerei
+2018 | 	Salon Arti et Amicitiae
+	| KCB, De Mens, van Mona Lisa tot selfie, Bergen
 	| Studio Omstand, OGENBLIKSEM #9 / Pulse 30, Arnhem
 	| Galerie Hommes, Waited for the fish corner, Rotterdam
 	| Studio Seine, OGENBLIKSEM #8, Rotterdam
