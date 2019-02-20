@@ -1,11 +1,13 @@
 
-## Salon Arti et Amicitiae
+## ARCADISCHE BRIES
 
-### 22 december 2018 t/m 23 januari 2019
+## Marit Dik / Anne Marie Spijker 
 
-Rokin 112, 1012 LB Amsterdam
+### 27 februari t/m 3 maart 2019
 
-[www.arti.nl](https://www.arti.nl/tentoonstelling/salon-2018/)
+Schoutenstraat 10, 3512 GB Utrecht
+
+Borrel en openingswoord door Paul Klemann: 27 februari, 17.00 uur 
 
 ---
 
@@ -17,12 +19,20 @@ Rokin 112, 1012 LB Amsterdam
 
 ---
 
-## ARCADISCHE BRIES
+## West Wednesdays op 10 April
 
-Duo-expositie met Anne Marie Spijker 
+### TETTERODE (Het Schip)
 
-### 27 februari t/m 3 maart 2019
+Bilderdijkstraat Amsterdam
 
-Schoutenstraat 10, 3512 GB Utrecht
+[www.westwednesdays.com](http://www.westwednesdays.com/over-2/)
 
-Borrel en openingswoord door Paul Klemann: 27 februari, 17.00 uur 
+---
+
+## House for Sale, groepstentoonstelling
+
+### 14/4 - 5/5 2019
+
+Elsweg 57, 7311 GV Apeldoorn
+
+[info](https://cultuurenerfgoed.gelderland.nl/tentoonstellingen/1263644.aspx)
