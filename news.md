@@ -3,11 +3,15 @@
 
 ## Marit Dik / Anne Marie Spijker 
 
-### 27 februari t/m 3 maart 2019
+### 27/2 t/m 3/3 2019
 
 Schoutenstraat 10, 3512 GB Utrecht
 
 Borrel en openingswoord door Paul Klemann: 27 februari, 17.00 uur 
+
+open: wo/zo 13.00- 18.00 uur, de kunstenaars zijn meest van de tijd zelf aanwezig
+
+[info](https://museumtijdschrift.nl/artspot/schoutenstraat-10-utrecht/)
 
 ---
 
