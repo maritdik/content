@@ -1,7 +1,7 @@
 
 # Selection of articles / media
 
-* [Openingswoord bij ARCADISCHE BRIES,2019, Paul Klemann](#Openingswoord-bij-ARCADISCHE-BRIES)
+* [Openingswoord bij ARCADISCHE BRIES, Paul Klemann, 2019](#Openingswoord-bij-ARCADISCHE-BRIES)
 * [Illusie in schuim, Joost Pollmann, 2017](#Illusie-in-schuim)
 * [Avondlog Wim Noordhoek, 2017](#avondlog-wim-noordhoek-2017)
 * [Avondlog Wim Noordhoek, 2015](#avondlog-wim-noordhoek-2015-marit-dik-in-de-derde-dimensie-)
