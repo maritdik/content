@@ -8,6 +8,7 @@ Education  | |
 1983-2016 |	Psycholoog o.m. voor Esdégé-Reigersdaal. 
 **Exhibitions**  | 
 2019 | Werkperiode jan/feb Leipzig, Spinnerei
+	| Arcadische Bries, Utrecht
 2018 | 	Salon Arti et Amicitiae
 	| KCB, De Mens, van Mona Lisa tot selfie, Bergen
 	| Studio Omstand, OGENBLIKSEM #9 / Pulse 30, Arnhem
