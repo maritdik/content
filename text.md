@@ -1,8 +1,8 @@
 
 # Selection of articles / media
 
-* [Arcadische Bries, openingswoord door Paul Klemann](Openingswoord bij ARCADISCHE BRIES)
-* [Illusie in schuim, Joost Pollmann, 2017](Illusie-in-schuim)
+* [Arcadische Bries, openingswoord door Paul Klemann](#Openingswoord bij ARCADISCHE BRIES)
+* [Illusie in schuim, Joost Pollmann, 2017](#Illusie-in-schuim)
 * [Avondlog Wim Noordhoek, 2017](#avondlog-wim-noordhoek-2017)
 * [Avondlog Wim Noordhoek, 2015](#avondlog-wim-noordhoek-2015-marit-dik-in-de-derde-dimensie-)
 * [Mister Motley, Alex de Vries, mei 2015](#mister-motley-mei-2015)
