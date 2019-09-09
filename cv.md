@@ -7,7 +7,8 @@ Education  | |
 1976-1983 |	Psychologie, VU, Vrije Universiteit, Amsterdam 
 1983-2016 |	Psycholoog o.m. voor Esdégé-Reigersdaal. 
 **Exhibitions**  | 
-2019 | House for Sale exhibition , Apeldoorn
+2019 | Arti et Amicitiae, Salon
+	| House for Sale exhibition , Apeldoorn
 	| West Wednesdays, Amsterdam
 	| Werkperiode jan/feb Leipzig, Spinnerei
 	| Arcadische Bries, Utrecht
