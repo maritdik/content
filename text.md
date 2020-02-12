@@ -1,7 +1,7 @@
 
 # Selection of articles / media
 
-* [Aantekeningen over de natuur in mijn werk, 2020, eigen tekst](#aantekeningen-over-de-natuur)
+* [Aantekeningen over de natuur in mijn werk, eigen tekst, 2020](#aantekeningen-over-de-natuur)
 * [Openingswoord bij ARCADISCHE BRIES, Paul Klemann, 2019](#Openingswoord-bij-ARCADISCHE-BRIES)
 * [Illusie in schuim, Joost Pollmann, 2017](#Illusie-in-schuim)
 * [Avondlog Wim Noordhoek, 2017](#avondlog-wim-noordhoek-2017)
