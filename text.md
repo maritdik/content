@@ -1,6 +1,7 @@
 
 # Selection of articles / media
 
+* [Aantekeningen over de natuur in mijn werk, 2020, eigen tekst](#aantekeningen-over-de-natuur)
 * [Openingswoord bij ARCADISCHE BRIES, Paul Klemann, 2019](#Openingswoord-bij-ARCADISCHE-BRIES)
 * [Illusie in schuim, Joost Pollmann, 2017](#Illusie-in-schuim)
 * [Avondlog Wim Noordhoek, 2017](#avondlog-wim-noordhoek-2017)
@@ -11,6 +12,27 @@
 * [Een zachte vloeiende stroom ribbelt over het doek, Donna Wolf, 2009](#een-zachte-vloeiende-stroom-ribbelt-over-het-doek-2009)
 * [THIS IS A LOVESONG, Lynn Woods, 2009](#this-is-a-lovesong-2009)
 
+---
+
+## Aantekeningen over de natuur in mijn werk
+
+
+
+Er ligt een snelweg, bijna klaar, van Warschau naar het oosten, naar Bialystok. Van daar is het niet ver meer naar Bialowieza. Dan ben je midden in het Poolse deel van het oerbos.
+
+
+Fluisterende meisjes die bomen zijn of omgekeerd, landschappen waarin jongeren de vrijheid vieren, pootje baden in de beek. In mijn werk is het landschap als een decor, een soort tuin, een Hof van Eden, Utopia, waar de maatschappelijke actualiteit geen vat op heeft. Het zijn gedroomde plekken waarnaar je kunt verlangen als je een periode midden in de stad zit en het nieuws van de wereld je duizelt. 
+Een tuin is iets anders dan de natuur. Een tuin is een concrete plek. De natuur daarentegen is volgens mij een abstracte oerkracht. Zij overleeft alles en iedereen. Zolang zij ons toelaat zullen wij bestaan. En als we gaan klagen omdat we de honingraat plunderen dan moeten we niet als Cupido bij Venus gaan klagen.
+Zoals de tuin zich verhoudt tot de natuur, zo staat het sprookjesbos tegenover het oerbos. Desondanks loopt in mijn werk het één in het ander over. Soms zijn het de kleine (blote) mensjes die zich laten zien en die de vrijheid vieren en andere keren gaat het om de lichtplekken in het bos. Een geelgors kan aanleiding zijn tot een diorama en de zon tussen de takken kan een schilderij worden. Maar ook schilderijen uit de kunstgeschiedenis kunnen een basis zijn voor een werk, bijvoorbeeld een serie vrij naar werk van Jan van Goyen.
+De aanzet tot mijn werk is daarentegen meestal terug te koppelen naar een verblijf ergens in een landschappelijke omgeving: bijvoorbeeld  een artist-in-residence in de Catskills in Amerika of logeerweken in een bos op de Veluwe of een bezoek aan het oerbos in Polen. Mijn actie radius is tijdens zo’n verblijf klein. Liefst fiets of loop ik dan. De ervaring van het ergens te zijn geweest en iets te hebben gezien is nodig voor mij om werk te maken.
+
+Voorbereiding voor Nature Seekers 
+Duotentoonstelling met Emmy Bergsma
+
+27, 28 en 29 maart 2020
+CW12, Curieweg 12, ZwolleCW12 Zwolle
+
+eigen tekst, februari 2020
 
 ---
 ## Openingswoord bij ARCADISCHE BRIES, 2019 
