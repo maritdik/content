@@ -27,10 +27,11 @@ Zoals de tuin zich verhoudt tot de natuur, zo staat het sprookjesbos tegenover h
 De aanzet tot mijn werk is daarentegen meestal terug te koppelen naar een verblijf ergens in een landschappelijke omgeving: bijvoorbeeld  een artist-in-residence in de Catskills in Amerika of logeerweken in een bos op de Veluwe of een bezoek aan het oerbos in Polen. Mijn actie radius is tijdens zo’n verblijf klein. Liefst fiets of loop ik dan. De ervaring van het ergens te zijn geweest en iets te hebben gezien is nodig voor mij om werk te maken.
 
 Voorbereiding voor Nature Seekers 
+
 Duotentoonstelling met Emmy Bergsma
 
 27, 28 en 29 maart 2020
-CW12, Curieweg 12, ZwolleCW12 Zwolle
+CW12, Curieweg 12, Zwolle
 
 eigen tekst, februari 2020
 
