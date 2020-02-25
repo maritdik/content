@@ -18,7 +18,7 @@ Mythe Meester schrijft over kunst, filosofie en levensbeschouwing op haar weblog
 ______________________________________________________________________________________________________________________________
 
 
-###Kunstuitleen Museum Kranenburgh Bergen 
+### Kunstuitleen Museum Kranenburgh Bergen 
 
 verkoopt/verhuurt permanent naast enkele van mijn schilderijen ook een multiple 3Dcollage en diverse linosnedes, waarvan de meeste gedrukt in Leipzig (ingelijst).
 
