@@ -7,14 +7,14 @@ Education  | |
 1976-1983 |	Psychologie, VU, Vrije Universiteit, Amsterdam 
 1983-2016 |	Psycholoog o.m. voor Esdégé-Reigersdaal. 
 **Exhibitions**  | 
-2020	| Of all Places, Arti et Amicitiae, Amsterdam
-2019 | Vrouwen in de Kunst III , Alkmaar
+2020	| Of All Places, Amsterdam
+2019 | Vrouwen in de Kunst III, Alkmaar
 	| Arti et Amicitiae, Salon, Amsterdam
-	| House for Sale exhibition , Apeldoorn
+	| House for Sale exhibition, Apeldoorn
 	| West Wednesdays, Amsterdam
 	| Werkperiode jan/feb Leipzig, Spinnerei
 	| Arcadische Bries, Utrecht
-2018 | 	Arti et Amicitiae, Salon
+2018 | 	Arti et Amicitiae, Salon, Amsterdam
 	| KCB, De Mens, van Mona Lisa tot selfie, Bergen
 	| Studio Omstand, OGENBLIKSEM #9 / Pulse 30, Arnhem
 	| Galerie Hommes, Waited for the fish corner, Rotterdam
