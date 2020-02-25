@@ -1,24 +1,23 @@
-Of all Places  
+## NATURE SEEKERS
 
-10 - 26 januari 2020 
+### CW12  ZWOLLE, 27.28.29 maart 2020
 
-Of all Places in Arti et Amicitea, Rokin 112, Amsterdam, 
-opening vrijdagavond 10 januari van 19.00 - 22.00 uur
+### MARIT DIK / EMMY BERGSMA
 
-_____________________________________________________________________________________________________________________________
+PROGRAMMA
 
-Salon Arti et Amicitiae,Rokin 112, Amsterdam
+VRIJDAG 27 MAART, 19.00 UUR: OPENING door Monique Schuttenbeld, wethouder cultuur / muziek van DJ Tamme
 
-t/m 7 januari 2020
+ZATERDAG 28 MAART, OPEN 11.00-17.00 met om 15.00 UUR: RONDLEIDING door Emmy Bergsma en Marit Dik
 
-____________________________________________________________________________________________________________________________
+ZONDAG 29 MAART, OPEN 11-17.00 met om 15.00 UUR – 16.30 UUR: LOPEND INTERVIEW door Myrthe Meester ,cultuurfilosoof.
+Mythe Meester schrijft over kunst, filosofie en levensbeschouwing op haar weblog [www.myrthemeester.com ](www.myrthemeester.com) en publiceert in verschillende tijdschriften waaronder Mister Motley en Palet Magazine.
 
-
-17 november t/m 15 december: groepsexpositie Vrouwen in de kunst III in Alkmaar, Koel310/expo, Koelmalaan 310, opening zondag 16.00 uur en daarna open op vr/za. 
+[www.CW12.nl](www.CW12.nl)  Curieweg 12 te Zwolle
 
 ______________________________________________________________________________________________________________________________
 
 
-In de kunstuitleen in Museum Kranenburgh in Bergen zijn permanent naast enkele schilderijen ook diverse prints (ingelijst) te koop / te huur.
+Kunstuitleen Museum Kranenburgh Bergen verkoopt/verhuurt permanent naast enkele van mijn schilderijen ook een multiple 3Dcollage en diverse linosnedes, waarvan de meeste gedrukt in Leipzig (ingelijst).
 
 ______________________________________________________________________________________________________________________________
