@@ -11,11 +11,13 @@ VRIJDAG 27 MAART
 19.00 UUR: OPENING door Monique Schuttenbeld, wethouder cultuur / muziek van DJ Tamme
 
 
+
 ZATERDAG 28 MAART
 
 OPEN 11.00-17.00
 
 15.00 UUR: RONDLEIDING door Emmy Bergsma en Marit Dik
+
 
 
 ZONDAG 29 MAART
