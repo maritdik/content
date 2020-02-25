@@ -1,6 +1,6 @@
 ## NATURE SEEKERS
 
-### CW12  ZWOLLE, 27.28.29 maart 2020
+### CW12  -   ZWOLLE  -  27.28.29 maart 2020
 
 ### MARIT DIK / EMMY BERGSMA
 
