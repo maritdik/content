@@ -30,8 +30,9 @@ Voorbereiding voor Nature Seekers
 
 Duotentoonstelling met Emmy Bergsma
 
-27, 28 en 29 maart 2020  (uitgesteld)
-CW12, Curieweg 12, Zwolle
+27, 28 en 29 maart 2020  (uitgesteld )
+
+CW12, Curieweg 12, Zwolle 
 
 eigen tekst, februari 2020
 
