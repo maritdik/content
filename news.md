@@ -23,6 +23,8 @@ ________________________________________________________________________________
 
 ### UITGESTELD NAAR LATERE DATUM
 
+![kaart](https://live.staticflickr.com/65535/49929464148_cfb57c2166_w.jpg)
+
 
 ## NATURE SEEKERS / CW12  -   ZWOLLE  
 
