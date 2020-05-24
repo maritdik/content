@@ -47,6 +47,9 @@ ________________________________________________________________________________
 
 ### Kunstuitleen Museum Kranenburgh Bergen 
 
+![lino's](https://live.staticflickr.com/7916/46235075725_d7669a29a4_w.jpg)
+
 verkoopt/verhuurt permanent naast enkele van mijn schilderijen ook een multiple 3Dcollage en diverse linosnedes, waarvan de meeste gedrukt in Leipzig (ingelijst).
+
 
 ______________________________________________________________________________________________________________________________
