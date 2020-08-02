@@ -1,3 +1,11 @@
+### Cover nieuwe CD Ruysdael Kwartet : Quart de Nuit (Ravel, Dutilleux en Debussy), label Deux-Elles
+
+Het Ruysdael Kwartet heeft mijn schilderij "Night Fall" uit 1917 gebruikt voor de cover en het boekje bij hun nieuwe CD.
+Een eervolle vraag. Het Ruysdael Kwartet Speelt prachtige muziek en de CD heeft een lofrijke recensie gekregen in De Volkskrant.
+
+
+_________________________________________________________________________________________________________________________
+
 ### Verschenen: 
 
 ![een zusje](https://live.staticflickr.com/65535/49929955596_af0650d641_w.jpg)
