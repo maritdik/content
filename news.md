@@ -1,10 +1,10 @@
-### Cover CD Ruysdael Quartet : Quart de Nuit (Ravel, Dutilleux en Debussy), label Deux-Elles
+### Ruysdael Quartet : Quart de Nuit 
+
+My painting "Night Fall", 2017 is on the cover and in the booklet of the new album "Quart De Nuit" by the Ruysdael Quartet (Ravel, Dutilleux en Debussy), label Deux-Elles, released June 2020
+
 
 ![quart de nuit](https://live.staticflickr.com/65535/50183441288_167a032ebc_n.jpg)
 
-
-
-My painting "Night Fall", 2017 is on the cover and in the booklet of the new CD "Quart De Nuit" (Deux-Elles, 2020) by string quartet Ruysdael Quartet
 
 
 _________________________________________________________________________________________________________________________
