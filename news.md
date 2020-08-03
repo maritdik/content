@@ -1,3 +1,24 @@
+### solotentoonstelling 
+
+## Recht terugkijken
+
+5.9 10.10.2020
+
+
+![RECHT TERUGKIJKEN](https://live.staticflickr.com/65535/50184242807_e7b96b0131.jpg)
+
+Tentoonstelling van schilderijen en werk op papier uit de serie "Een zusje";
+
+tevens de presentatie van het boek met schilderijen (Marit Dik) en kort verhaal (Rosa Juno Streekstra), uitgeverij De Zwaluw, 2020
+
+Projectruimte BMB, Kerkstraat 129A, Amsterdam
+
+do t/m za 12.30 - 17.30 uur en op afspraak
+
+[www.galeriebmb.nl](www.galeriebmb.nl)
+________________________________________________________________________________________________________________________
+
+
 ### Ruysdael Quartet : Quart de Nuit 
 
 My painting "Night Fall", 2017 is on the cover and in the booklet of the new album "Quart De Nuit" by the Ruysdael Quartet (Ravel, Dutilleux en Debussy), label Deux-Elles, released June 2020
