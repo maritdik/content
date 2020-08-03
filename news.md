@@ -4,10 +4,7 @@
 
 
 
-Het Ruysdael Kwartet heeft mijn schilderij "Night Fall" uit 1917 gebruikt voor de cover en het boekje bij hun nieuwe CD.
-Een eervolle vraag. Het Ruysdael Kwartet Speelt prachtige muziek en de CD heeft een lofrijke recensie gekregen in De Volkskrant.
-
-
+My painting "Night Fall", 2017 is on the cover and in the booklet of the new CD "Quart De Nuit" (Deux-Elles, 2020) by string quartet Ruysdael Quartet
 
 
 _________________________________________________________________________________________________________________________
