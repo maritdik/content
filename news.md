@@ -15,7 +15,7 @@ Projectruimte BMB, Kerkstraat 129A, Amsterdam
 
 do t/m za 12.30 - 17.30 uur en op afspraak
 
-[www.galeriebmb.nl](www.galeriebmb.nl)
+[www.galeriebmb.nl](https://www.galeriebmb.nl/marit-dik-recht-terugkijken-solotentoonstelling_september-oktober-2020-bmb/)
 ________________________________________________________________________________________________________________________
 
 
