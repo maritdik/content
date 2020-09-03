@@ -18,6 +18,15 @@ do t/m za 12.30 - 17.30 uur en op afspraak
 [www.galeriebmb.nl](https://www.galeriebmb.nl/marit-dik-recht-terugkijken-solotentoonstelling_september-oktober-2020-bmb/)
 ________________________________________________________________________________________________________________________
 
+### 19 en 20 september
+
+## NATURE SEEKERS / CW12  -   ZWOLLE  
+
+### MARIT DIK / EMMY BERGSMA
+
+
+[www.CW12.nl](http://www.CW12.nl)   Curieweg 12 te Zwolle
+_________________________________________________________________________________________________________________________
 
 ### Ruysdael Quartet : Quart de Nuit 
 
@@ -54,7 +63,7 @@ Je belangstelling zal ik met veel plezier ontvangen.
 __________________________________________________________________________________________________________________________
 
 
-### UITGESTELD NAAR 18, 19 20 september 2020
+### UITGESTELD NAAR 19 en 20 september 2020
 
 ![kaart](https://live.staticflickr.com/65535/49929464148_cfb57c2166_w.jpg)
 
