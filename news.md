@@ -16,6 +16,8 @@ Projectruimte BMB, Kerkstraat 129A, Amsterdam
 do t/m za 12.30 - 17.30 uur en op afspraak
 
 [www.galeriebmb.nl](https://www.galeriebmb.nl/marit-dik-recht-terugkijken-solotentoonstelling_september-oktober-2020-bmb/)
+
+
 ________________________________________________________________________________________________________________________
 
 ### 19 en 20 september
@@ -24,8 +26,11 @@ ________________________________________________________________________________
 
 ### MARIT DIK / EMMY BERGSMA
 
+![uitnodiging](https://live.staticflickr.com/65535/50301133763_4b8aa33ae1_c.jpg)
 
 [www.CW12.nl](http://www.CW12.nl)   Curieweg 12 te Zwolle
+
+
 _________________________________________________________________________________________________________________________
 
 ### Ruysdael Quartet : Quart de Nuit 
@@ -60,21 +65,6 @@ De prijs: 15 euro. Graag naam en postadres vermelden in je reactie.
 Je belangstelling zal ik met veel plezier ontvangen.
 
 
-__________________________________________________________________________________________________________________________
-
-
-### UITGESTELD NAAR 19 en 20 september 2020
-
-![kaart](https://live.staticflickr.com/65535/49929464148_cfb57c2166_w.jpg)
-
-
-## NATURE SEEKERS / CW12  -   ZWOLLE  
-
-### MARIT DIK / EMMY BERGSMA
-
-
-
-[www.CW12.nl](http://www.CW12.nl)   Curieweg 12 te Zwolle
 
 ______________________________________________________________________________________________________________________________
 
