@@ -1,8 +1,8 @@
 ### solotentoonstelling 
 
-## Recht terugkijken
+## RECHT TERUGKIJKEN
 
-5.9 10.10.2020
+5 september t/m 10 oktober 2020
 
 
 ![RECHT TERUGKIJKEN](https://live.staticflickr.com/65535/50184242807_e7b96b0131.jpg)
