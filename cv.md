@@ -13,7 +13,7 @@ Education  | |
 	| House for Sale exhibition, Apeldoorn
 	| West Wednesdays, Amsterdam
 	| Werkperiode jan/feb Leipzig, Spinnerei
-	| Arcadische Bries, Utrecht
+	| Arcadische Bries, Marit Dik /Anne Marie Spijker, Utrecht
 2018 | 	Arti et Amicitiae, Salon, Amsterdam
 	| KCB, De Mens, van Mona Lisa tot selfie, Bergen
 	| Studio Omstand, OGENBLIKSEM #9 / Pulse 30, Arnhem
