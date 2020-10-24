@@ -30,6 +30,7 @@ Het is een emotioneel boek over een bijzonder leven. Het eindigt met een panoram
 Uitgave “Mijn zusje”, schilderijen van Marit Dik, tekst van Rosa Juno Streekstra. Uitgeverij De Zwaluw, 2020.
 
 
+---
 
 ## Aantekeningen over de natuur in mijn werk
 
