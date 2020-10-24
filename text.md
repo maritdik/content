@@ -1,7 +1,7 @@
 
 # Selection of articles / media
 
-* [over "Een zusje" door Jurjen K. van der Hoek , 2020] (https://jurjenkvanderhoek.tumblr.com/post/628133000692072448/zus-met-down-blijft-altijd-zusje)
+* [over "Een zusje" door Jurjen K. van der Hoek , 2020](zus-met-down-blijft-altijd-zusje)
 * [Aantekeningen over de natuur in mijn werk, eigen tekst, 2020](#aantekeningen-over-de-natuur)
 * [Openingswoord bij ARCADISCHE BRIES, Paul Klemann, 2019](#Openingswoord-bij-ARCADISCHE-BRIES)
 * [Illusie in schuim, Joost Pollmann, 2017](#Illusie-in-schuim)
@@ -14,6 +14,22 @@
 * [THIS IS A LOVESONG, Lynn Woods, 2009](#this-is-a-lovesong-2009)
 
 ---
+## Zus met down blijft altijd zusje
+
+### Jurjen K. van der Hoek, 2020
+
+[tekst incl. afbeeldingen: https://jurjenkvanderhoek.tumblr.com:]( https://jurjenkvanderhoek.tumblr.com/post/628133000692072448/zus-met-down-blijft-altijd-zusje)
+
+Het maakt indruk. Een leven met een verstandelijk gehandicapte broer of zus, oom of tante. Een lid van de familie dat er enigszins tussenuit valt. Een vreemde eend in de bijt. Niet om het abnormale, maar omdat het extra zorg en aandacht verdient. Zo’n broertje of zusje, de verkleinvorm blijft op elke leeftijd, lijkt een last maar schept meer vreugde in het leven. Met liefde denk ik daaraan terug. Het boek “Een zusje” ligt me dan ook na aan het hart.
+De oudste zus van Marit Dik heeft het syndroom van Down. In een aan haarzelf opgelegd bijzonder project heeft Dik haar zus geportretteerd. Momenten uit haar leven aan de hand van oude zwartwit foto’s. Het geeft een tijdsbeeld, dat spant tussen geboorte en dood. Twee handen vol van de reeks schilderijen zijn afgedrukt in de uiitgave met het lichtgroene kaft. Een kleur die past bij een smetteloos leven, een zijn van een kind dat het altijd is gebleven, een zusje.
+Het is een kwetsbaar bestaan, dat echter niet spreekt door of uit de kleurige werken. In een losse schilderstijl met een trefzekere toets, weet Marit Dik de juiste sfeer te treffen. Het is een sfeer vol gevoel, maar wel met een vrolijke noot en een blijde toon. Het is geen triest leven, want wat is normaal. Het is een eigen wereld naast de buitenwereld, zoals Iris Cornelis in het korte voorwoord treffend verwoordt. Rosa Juno Streekstra, dochter van, schreef een kort verhaal. Het beschrijft de emotionele ervaringen met haar tante. De tante, het zusje, dat nergens in de teksten een naam krijgt. Zo dicht komt ze niet bij de beschouwer van de schilderijen en de lezer van de woorden. De naam te noemen van het kind dat tot vrouw wordt is te persoonlijk en raakt te dicht aan de privé-sfeer.
+Het onopvallende familielid wordt in dit boek een opvallende verschijning. In een elftal schilderijen ga ik aan de hand van Marit met rasse schreden door het leven van haar zusje. Van de baby in doopjurk, dat verbaast met open mond de wereld inkijkt, via het voorzichtige voelen van nat water aan het strand en de vrolijke gymklas aan het klimrek, tot een schaterlach op een blauw waterbed. Is dat Marit die over haar zus gebogen zit of de moeder die de dochter liefdevol door de haren strijkt. Ik zie de moeder met kind als een madonna onder een roze wolk, want “die oogjes trekken wel bij”. Op een volgend werk puzzelt ze en kijkt verstoord naar mij op. Een intense oogopslag. Een gebroken moment. Dan geheel in zichzelf gekeerd met een borduurwerk. Levend in het moment ’s morgens vroeg op een bed met een deken als een bloemenveld of een tafel vol engelse drop. Nog half in die droom glimlacht ze de dag tegemoet.
+De meeste van de schilderijen zie ik als een droomwereld, een vrolijk moment in het nu. Want een mongooltje heeft lol in het leven, is onbezorgd en ziet nergens een schaduwzijde zoals wij die wel zien. Ons normaal is omgeven met een zwarte rand, we zouden een voorbeeld aan de zusjes en broertjes moeten nemen. Een ijsje eten met vriendinnen van het gezinsvervangend tehuis. Veel indruk maakt de plaat “rode jas”. Kijkend in haar tas wordt het zusje dat vrouw is opgeschrikt. De grote wel erg rode jas hangt nonchalant om de schouders. De blik achter de ronde brillenglazen boven een onnozel geopende mond spreekt van verwarring. Een voorbode van dat ze niet meer leeft in het tegenwoordige moment, maar dat dementie haar hopeloos terug zet in de tijd. Toch kan het leven ook voor een mens met down hard en in mineur zijn.
+Het is een emotioneel boek over een bijzonder leven. Het eindigt met een panoramische blik in het atelier waar ik nog twee schilderijen meer ontdek. De zus aan een feestdiner en de gymklas. Deze klas vind ik nog terug wanneer ik het boekje dan eindelijk dicht doe. Een prachtige plaat waarop ieder karakter individu is. Stoïcijns, lachend, schreeuwend, glimmend, neuriënd; maar nergens recht in de lens kijkend voor de opname. Een giebelend stel meiden, als in de “echte” wereld. Wat een plezier! Marit Dik heeft een persoonlijke serie schilderijen gemaakt, waarbij ze dicht bij zichzelf blijft – dichter nog dan de kunstenaar gewoonlijk is. Een inkijk in een leven dat normaal gesproken ongezien blijft.
+
+Uitgave “Mijn zusje”, schilderijen van Marit Dik, tekst van Rosa Juno Streekstra. Uitgeverij De Zwaluw, 2020.
+
+
 
 ## Aantekeningen over de natuur in mijn werk
 
