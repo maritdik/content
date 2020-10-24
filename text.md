@@ -1,6 +1,7 @@
 
 # Selection of articles / media
 
+* [over "Een zusje" door Jurjen K. van der Hoek , 2020] (https://jurjenkvanderhoek.tumblr.com/post/628133000692072448/zus-met-down-blijft-altijd-zusje)
 * [Aantekeningen over de natuur in mijn werk, eigen tekst, 2020](#aantekeningen-over-de-natuur)
 * [Openingswoord bij ARCADISCHE BRIES, Paul Klemann, 2019](#Openingswoord-bij-ARCADISCHE-BRIES)
 * [Illusie in schuim, Joost Pollmann, 2017](#Illusie-in-schuim)
