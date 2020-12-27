@@ -1,3 +1,49 @@
+
+
+
+## Atelier Magazine
+
+
+![artikel Atelier magazine](https://live.staticflickr.com/65535/50765678493_901364c7bb_w.jpg)
+
+Een interview door Myrthe Meester, cultuurfilosoof
+
+op dit moment alleen te bestellen in de webshop: [Atelier Magazine](https://www.ateliermagazine.nl)
+________________________________________________________________________________________________________________________
+
+## Metamorfose
+
+20-1-21 t/m 21-2-2021
+
+![KatzeundHarlekin](https://live.staticflickr.com/7823/47096914152_a860cc1371.jpg)
+
+### groepstentoonstelling KCB 
+
+Villa Museum Kranenburgh
+
+Hoflaan 26
+
+1861 CR  Bergen NH
+
+Twee van mijn lino's uit 2019 doen mee in Metamorfose bij het KCB. De andere twee uit de serie zijn in de winkel/kunstuitleen in het museum.
+
+Check voor tijdslot, openingstijden en maatregelen ivm corona de website van het museum [https://www.kranenburgh.nl](https://www.kranenburgh.nl)
+
+Tip: In het museum is een bijzondere tentoonstelling te zien "Kunstenaars van Die Brücke".
+
+________________________________________________________________________________________________________________________
+
+### Salon Arti et Amicitiae
+
+eindejaarstentoonstelling
+
+![Forest Jump](https://live.staticflickr.com/65535/50766568892_6edbd1cc4d_w.jpg)
+
+(het werk is inmiddels verkocht)
+
+
+______________________________________________________________________________________________________________________
+
 ### solotentoonstelling 
 
 ## RECHT TERUGKIJKEN
