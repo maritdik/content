@@ -1,6 +1,7 @@
 
 # Selection of articles / media
 
+* [Ode aan de kwetsbaarheid, Myrthe Meester, 2021](#ode-aan-de-kwetsbaarheid-Myrthe-Meester)
 * [over "Een zusje" door Jurjen K. van der Hoek , 2020](zus-met-down-blijft-altijd-zusje)
 * [Aantekeningen over de natuur in mijn werk, eigen tekst, 2020](#aantekeningen-over-de-natuur)
 * [Openingswoord bij ARCADISCHE BRIES, Paul Klemann, 2019](#Openingswoord-bij-ARCADISCHE-BRIES)
@@ -12,6 +13,29 @@
 * [KunstNetTV, 2015](#KunstnetTV-2015-Alkmaarse-kunstenaar-Marit-Dik-verbeeldt-vluchtige-momenten)
 * [Een zachte vloeiende stroom ribbelt over het doek, Donna Wolf, 2009](#een-zachte-vloeiende-stroom-ribbelt-over-het-doek-2009)
 * [THIS IS A LOVESONG, Lynn Woods, 2009](#this-is-a-lovesong-2009)
+
+---
+## ODE AAN DE KWETSBAARHEID
+
+### TEKST: MYRTHE MEESTER, 2021
+
+
+Mensen met Downsyndroom zie je maar zelden uitgebeeld in de kunsten. Marit Dik brengt daar verandering in met een reeks liefdevolle, soms confronterende portretten van haar oudere zus met Downsyndroom, die twee jaar geleden overleden is. ‘Haar invloed op mijn werk is dat ik niet van perfectie houd, en dat ik op zoek ben naar een zekere waarachtigheid.’ 
+
+Aan de muur van Projectruimte BMB in Amsterdam hangen grote, kleurige portretten van een vrouw met Downsyndroom in alle stadia van haar leven. Ogen die wat naar binnen toe draaien, een mond die soms een beetje open hangt – een beeld dat we allemaal kennen. Maar ook: een meisje dat in opperste concentratie over een borduurwerkje gebogen zit en me onwillekeurig aan De kantwerkster van Vermeer doet denken. Een jonge vrouw die, met haar handen in haar schoot en een oplichtend gezicht tegen een donkere achtergrond, associaties oproept met een klassiek heiligenportret. Marit Dik speelt met de kunsthistorische traditie, met clair-obscur en traditionele composities. ‘Het leek me goed om mijn zus neer te zetten zoals we kennen van bekende schilderijen’, vertelt de kunstenares in de galerie, te midden van haar serie portretten. ‘Het schilderij Wakker, waar je mijn zus midden in de nacht een fantasiegesprek ziet voeren met onzichtbare mensen, is inderdaad een vorm van clair-obscur. Sommige kijkers deed het denken aan Gentileschi of Caravaggio.’ Het is belangrijk voor Dik om de schilderijen van haar zus – die allemaal gebaseerd zijn op oude foto’s – boven het louter persoonlijke uit te tillen en te voor- zien van een universele lading. 
+
+
+ONZICHTBAAR 
+Mensen met Downsyndroom zijn vaak onzichtbaar geweest – niet alleen in de kunsten, maar ook in het dagelijks leven. ‘Grieken en Romeinen moesten er helemaal niets van hebben’, vertelt Dik. ‘Kinderen met Down hoefde je niet op te voeden, die konden er beter niet zijn.’ Binnen het christendom heetten ze kinderen van God, maar werden ze in de praktijk zo veel mogelijk binnenshuis weggestopt. Het bekendste werk uit de kunstgeschiedenis is The Adoration of the Christ Child uit 1515 door een volgeling van Jan Joest van Kalkar, die twee engeltjes met Downsyndroom bij de kribbe van Jezus heeft geschilderd. ‘Voor gezinnen die hun kind in de aardse wereld moesten verstoppen, was het misschien troostend dat hun kind dan in ieder geval een engeltje mocht worden.’ Pas in de afgelopen decennia is er meer bekendheid en acceptatie gekomen ten aanzien van mensen met Downsyndroom, vooral via televisieoptredens en boeken. Fotografe Eva Snoijink publiceerde in 2008 het fotoboek De Upside van Down: Een positieve kijk op het Downsyndroom, waarin ze 101 Downkinderen heeft vastgelegd op een flatterende manier die aan glamourfoto’s doet denken. Dik is blij met ‘dat populaire’, maar heeft zelf de behoefte om niet alleen die gezellige, gepolijste kant van Down te laten zien. ‘Ik weet ook dat mensen na hun veertigste behoorlijk achteruitgaan, en dat het dan niet meer het mooie plaatje is. Er zijn ook andere kanten dan alleen: “Ze zijn zo leuk en altijd blij”. Het is soms ook heel gewoon, of heel schrijnend.’ 
+
+
+KWETSBAAR 
+Toen haar zus in de jaren vijftig opgroeide, was er ‘nog veel ongemak en schaamte in de omgeving’. Aan haar ouders werd na de geboorte niet verteld wat er met hun dochtertje aan de hand was. ‘Die oogjes, dat trok wel bij. De duidelijkheid kwam van een jong meisje dat bij de kinderwagen zei: “Wij hebben ook zo’n kindje in de straat.”’ Het maakt de babyfoto’s van haar zus extra fascinerend, vindt de kunstenares. Want terwijl haar ouders op dat moment nog niet wisten dat het meisje Downsyndroom had, is het met de kennis achteraf goed zichtbaar. Dik wijst naar het schilderij Doopjurk, gebaseerd op een kleine zwart-witfoto, waarop je een baby in een witte jurk tegen een lege, onheilspellend grijsgroene achtergrond ziet liggen. ‘Dat gezichtje, die oogjes... als je het eenmaal weet, dan herken je het direct.’ Doopjurk is een schilderij dat Dik heel dierbaar is, en dat ze – in tegenstelling tot de andere portretten uit de serie – niet te koop aanbiedt. ‘Ik denk vanwege haar kwetsbaarheid, die op dat schilderij zo zichtbaar is. Daar wil ik voor zorgen.’ 
+
+Hoe kwetsbaar Diks zus met Downsyndroom ook was, zelf voelde zij zich niet hulpeloos: ‘Ze reflecteerde ook niet op haar anders-zijn. Het was eerder zo dat wij in haar omgeving soms dachten: “Oh, gaat dat wel goed?”’ Blauw waterbed is eveneens een werk waarin die kwetsbaarheid goed zichtbaar is. ‘Aanvankelijk had ik daar een héél groot schilderij van willen maken, omdat ik het een soort religieuze pose vond, een icoon van barmhartigheid’, vertelt de kunstenares. Uiteindelijk werd het een doek van één bij anderhalve meter, waarop je Dik liefdevol over haar zus heen gebogen ziet zitten, die van ouderdom heel klein geworden was en dementeerde, iets wat bovengemiddeld vaak voorkomt bij mensen met Down. De onderste helft van het schilderij wordt gevuld door het blauwe bed waarnaar de titel verwijst, een blauw waar je ook andere kleuren doorheen ziet schemeren. ‘Dat bed vond ik heel fijn om te schilderen’, zegt Dik. ‘Eerst was het heel licht en zat er ook rood in, en zo bouwde ik het op. Door die kleuren over elkaar heen te zetten, krijg je een soort wolk van tonen, net als in muziek.’ 
+Voor iedereen die Diks expositie in Projectruimte BMB gemist heeft, is het boekje Een zusje te koop, waarin de mooiste schilderijen zijn gebundeld – van Roze wolk, een onbezorgd portret van haar 23-jarige moeder met spillebenen en ‘een kleine hummel op haar arm’, tot Gymklas, een doek vol meisjes met Downsyndroom in turnpakjes, wier schetsmatige, soms ver- wrongen gezichten associaties oproepen met het werk van Marlene Dumas. In het boek staat een kort verhaal van Diks dochter Rosa Juno Streekstra, ‘Recht terugkijken’, waarin zij jeugdherinneringen ophaalt aan haar bijzondere tante, die helemaal kon opgaan in het moment. Al met al vormt Een zusje een ode aan de menselijke kwetsbaarheid en aan de grote, soms onverwachte schoonheid daarvan. 
+
+tekst gepubliceerd in Atelier 35/210
 
 ---
 ## Zus met down blijft altijd zusje
