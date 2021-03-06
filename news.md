@@ -8,7 +8,7 @@
 
 Een interview door Myrthe Meester, cultuurfilosoof
 
-op dit moment alleen te bestellen in de webshop: [Atelier Magazine](https://www.ateliermagazine.nl)
+[zie tekst](https://www.maritdik.nl/text)
 ________________________________________________________________________________________________________________________
 
 ## Metamorfose
