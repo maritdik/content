@@ -9,7 +9,7 @@ Education  | |
 **Exhibitions**  | 
 2020	| Metamorfose, KCB, Bergen
 	| Salon Arti et Amicitiae, Amsterdam
-	| Recht terugkijken (solo), Projectruimte BMB, Amsterdam
+	| Recht terugkijken (solo), [Projectruimte BMB, Amsterdam](https://www.galeriebmb.nl/agenda/) 
 	| Of All Places, Amsterdam
 2019 | Vrouwen in de Kunst III, Alkmaar
 	| Arti et Amicitiae, Salon, Amsterdam
