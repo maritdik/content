@@ -7,11 +7,14 @@ Education  | |
 1976-1983 |	Psychologie, VU, Vrije Universiteit, Amsterdam 
 1983-2016 |	Psycholoog o.m. voor Esdégé-Reigersdaal. 
 **Exhibitions**  | 
-2020	| Of All Places, Amsterdam
+2020	| Metamorfose, KCB, Bergen
+	| Salon Arti et Amicitiae, Amsterdam
+	| Recht terugkijken (solo), Projectruimte BMB, Amsterdam
+	| Of All Places, Amsterdam
 2019 | Vrouwen in de Kunst III, Alkmaar
 	| Arti et Amicitiae, Salon, Amsterdam
 	| House for Sale exhibition, Apeldoorn
-	| West Wednesdays, Amsterdam
+	| West Wednesdays (solo), Amsterdam
 	| Werkperiode jan/feb Leipzig, Spinnerei
 	| Arcadische Bries, Marit Dik /Anne Marie Spijker, Utrecht
 2018 | 	Arti et Amicitiae, Salon, Amsterdam
@@ -92,6 +95,7 @@ Education  | |
 2009 | Artist-in residence Phoenicia, Hudsonriver400, USA
 2004 | Artist-in residence, Mirabel, Künstlerhaus Ziegelhütte Darmstadt, Germany,  [http://www.künstlerhaus-ziegelhütte.de](http://www.künstlerhaus-ziegelhütte.de) 
 **Activities** |
+2020 | Boekuitgave "Een zusje", Uitgeverij De Zwaluw Den Haag
 2012 - 2014 | Jurylid Rabobank Cultuurprijs, Alkmaar 
 2011 | Kunstenaarstekst bij uitgave Loes Groothuis 
 2010 | Curator Geestrijke Mens, KCB, Bergen
@@ -99,6 +103,8 @@ Education  | |
 2007 | Curator, Family Matters, Kunsteyssen, Alkmaar (met Elles Jeurink)
 2007 | Initiatiefgroep Kunsteyssen Alkmaar
 **Publications** |
+2020 | Ode aan de kwetsbaarheid, Myrthe Meester, AtelierMargazine
+2020 | Zus met Down blijft altijd een zusje, Jujen K. van Hoek, Kunst-stukjes
 2018 | IN: Oog voor Detail: Verende druppels, Wieteke van Zeil, De Volkskrant
 2017 | Uit het raam vliegen, Wim Noordhoek, Avondlog
 2016 | Catalogus De Gele Krant, MOTImuseum bij Van Gogh Mini’s
