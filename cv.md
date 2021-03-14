@@ -9,7 +9,7 @@ Education  | |
 **Exhibitions**  | 
 2020	| Metamorfose, KCB, Bergen
 	| Salon Arti et Amicitiae, Amsterdam
-	| Recht terugkijken (solo), [Projectruimte BMB, Amsterdam](https://www.galeriebmb.nl/marit-dik-recht-terugkijken-solotentoonstelling september-oktober-2020-bmb/) 
+	| Recht terugkijken (solo),Projectruimte BMB, Amsterdam
 	| Of All Places, Amsterdam
 2019 | Vrouwen in de Kunst III, Alkmaar
 	| Arti et Amicitiae, Salon, Amsterdam
