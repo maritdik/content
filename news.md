@@ -2,7 +2,7 @@
 
 21 maart - 21 juni 2021
 
-Kunstroute in kleine vitrines buiten op het Wilhelmina Gasthuis-terrein, Amsterdam
+Kunstroute langs kleine gele vitrines buiten op het Wilhelmina Gasthuis-terrein, Amsterdam
 
 ![ruimtelijketekeningmaken](https://live.staticflickr.com/65535/51164277975_672a4f417d_w.jpg)
 
@@ -116,7 +116,7 @@ Nu zij is overleden wilde ik momenten uit haar leven vastleggen. Aan de hand van
 Wie belangstelling heeft ( 24 blz, hard cover) kan een berichtje sturen naar [maritdik@gmail.com](mailto:maritdik@gmail.com) 
 of via een p.m. in facebook een boekje bestellen. Het boek is ook verkrijgbaar bij De Eerste Bergensche Boekhandel in Bergen.
 
-De prijs: 15 euro. Graag naam en postadres vermelden in je reactie.
+De prijs: 15 euro (excl portokosten). Graag naam en postadres vermelden in je reactie.
 
 Je belangstelling zal ik met veel plezier ontvangen.
 
