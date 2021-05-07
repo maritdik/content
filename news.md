@@ -1,4 +1,4 @@
-## Binnenste Buiten - WG Kunst
+## BINNENSTE BUITEN - WG Kunst
 
 21 maart - 21 juni 2021
 
@@ -21,7 +21,7 @@ Een interview door Myrthe Meester, cultuurfilosoof
 [zie tekst](https://www.maritdik.nl/text)
 ________________________________________________________________________________________________________________________
 
-## Metamorfose
+## METAMORFOSE
 
 20-1-21 t/m 21-2-2021
 
@@ -43,7 +43,7 @@ Tip: In het museum is een bijzondere tentoonstelling te zien "Kunstenaars van Di
 
 ________________________________________________________________________________________________________________________
 
-### Salon Arti et Amicitiae
+### SALON Arti et Amicitiae
 
 eindejaarstentoonstelling
 
@@ -99,7 +99,7 @@ My painting "Night Fall", 2017 is on the cover and in the booklet of the new alb
 
 _________________________________________________________________________________________________________________________
 
-### Verschenen: 
+### VERSCHENEN EN TE KOOP: 
 
 ![een zusje](https://live.staticflickr.com/65535/49929955596_af0650d641_w.jpg)
 
