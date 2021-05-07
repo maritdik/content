@@ -2,7 +2,7 @@
 
 21 maart - 21 juni 2021
 
-Kunstroute in vitrines buiten op het Wilhelmina Gasthuis-terrein, Amsterdam
+Kunstroute in kleine vitrines buiten op het Wilhelmina Gasthuis-terrein, Amsterdam
 
 ![ruimtelijketekeningmaken](https://live.staticflickr.com/65535/51164277975_672a4f417d_w.jpg)
 
