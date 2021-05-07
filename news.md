@@ -8,7 +8,7 @@ Kunstroute in vitrines buiten op het Wilhelmina Gasthuis-terrein, Amsterdam
 
 [zie voor plattegrond](https://www.wgkunst.nl/binnenste-buiten)
 
-
+________________________________________________________________________________________________________________________
 
 
 ## Atelier Magazine
