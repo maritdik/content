@@ -27,9 +27,7 @@ ________________________________________________________________________________
 
 ![KatzeundHarlekin](https://live.staticflickr.com/7823/47096914152_a860cc1371.jpg)
 
-### groepstentoonstelling KCB 
-
-Villa Museum Kranenburgh
+Groepstentoonstelling KCB in de Villa van Museum Kranenburgh
 
 Hoflaan 26
 
