@@ -1,7 +1,7 @@
 
 ## METAMORFOSE
 
-05-06-21 t/m 21-07-2021
+05-06-21 t/m 11-07-2021
 
 ![KatzeundHarlekin](https://live.staticflickr.com/7823/47096914152_a860cc1371.jpg)
 
