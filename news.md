@@ -12,7 +12,7 @@ Hoflaan 26
 
 Twee van mijn lino's uit 2019 doen mee in Metamorfose bij het KCB. De andere twee uit de serie zijn in de winkel/kunstuitleen in het museum.
 
-Check voor tijdslot, openingstijden en maatregelen ivm corona de website van het museum [https://www.kranenburgh.nl](https://www.kranenburgh.nl)
+Check voor tijdslot/tickets en openingstijden de website van het museum [https://www.kranenburgh.nl](https://www.kranenburgh.nl)
 
 Tip: In het museum is een bijzondere tentoonstelling te zien "Kunstenaars van Die Brücke".
 
