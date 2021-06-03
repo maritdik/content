@@ -1,5 +1,3 @@
-## Musea weer open:
-
 ## METAMORFOSE
 
 05-06-21 t/m 11-07-2021
