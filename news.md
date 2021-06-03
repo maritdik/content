@@ -1,3 +1,26 @@
+
+## METAMORFOSE
+
+05-06-21 t/m 21-07-2021
+
+![KatzeundHarlekin](https://live.staticflickr.com/7823/47096914152_a860cc1371.jpg)
+
+Groepstentoonstelling KCB in de Villa van Museum Kranenburgh
+
+Hoflaan 26
+
+1861 CR  Bergen NH
+
+Twee van mijn lino's uit 2019 doen mee in Metamorfose bij het KCB. De andere twee uit de serie zijn in de winkel/kunstuitleen in het museum.
+
+Check voor tijdslot, openingstijden en maatregelen ivm corona de website van het museum [https://www.kranenburgh.nl](https://www.kranenburgh.nl)
+
+Tip: In het museum is een bijzondere tentoonstelling te zien "Kunstenaars van Die Brücke".
+
+________________________________________________________________________________________________________________________
+
+
+
 ## BINNENSTE BUITEN - WG Kunst
 
 21 maart - 21 juni 2021
@@ -19,26 +42,6 @@ ________________________________________________________________________________
 Een interview door Myrthe Meester, cultuurfilosoof
 
 [zie tekst](https://www.maritdik.nl/text)
-________________________________________________________________________________________________________________________
-
-## METAMORFOSE
-
-20-1-21 t/m 21-2-2021
-
-![KatzeundHarlekin](https://live.staticflickr.com/7823/47096914152_a860cc1371.jpg)
-
-Groepstentoonstelling KCB in de Villa van Museum Kranenburgh
-
-Hoflaan 26
-
-1861 CR  Bergen NH
-
-Twee van mijn lino's uit 2019 doen mee in Metamorfose bij het KCB. De andere twee uit de serie zijn in de winkel/kunstuitleen in het museum.
-
-Check voor tijdslot, openingstijden en maatregelen ivm corona de website van het museum [https://www.kranenburgh.nl](https://www.kranenburgh.nl)
-
-Tip: In het museum is een bijzondere tentoonstelling te zien "Kunstenaars van Die Brücke".
-
 ________________________________________________________________________________________________________________________
 
 ### SALON Arti et Amicitiae
