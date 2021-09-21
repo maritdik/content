@@ -35,9 +35,9 @@ De fallusdraagster is opmerkelijk genoeg de enige figuur die contact maakt met d
 Dat is wat de sirenen zingen. In de Griekse tragedies waren de sirenen aanvankelijk vogels. Hun gezang gaf licht op een verborgen wereld. Die van de dood. 
 
 In de muurprint zijn 4 vrouwfiguren. De buik van "de zwangere vrouw" is als de aarde. Hier ontstaat en groeit het leven. Dit besef dragen vrouwen van jongs af aan met zich mee.
-"De liefde" staat niet op zichzelf maar verbindt de mensen met elkaar. Iets waar we niet alleen vanuit ons hart maar ook met verstand mee om moeten gaan. Zij kijkt ons aan.In dit werk verbindt verbindt "de vogelvrouw" de grond waarop zij loopt met de lucht waarin ze vliegt. Daardoor kan ze vluchtelingen redden naar een betere toekomst. 
+"De liefde" staat niet op zichzelf maar verbindt de mensen met elkaar. Iets waar we niet alleen vanuit ons hart maar ook met verstand mee om moeten gaan. Zij kijkt ons aan. In dit werk gaat "de vogelvrouw" van de grond waarop zij loopt naar de lucht waarin ze vliegt. Daardoor kan ze vluchtelingen redden naar een betere toekomst. 
 
-Deze vrouwen zijn geen sirenen maar hebben wel elk een eigen verborgen kracht. Die stellen ze ten dienste aan de liefde, de aarde, de mensheid die op de vlucht is en uiteindelijk wil zij, de vrijheidsstrijdster zegevieren. Haar vlag kent geen kleur, geen tekens maar is voor alles en iedereen.
+Deze vrouwen zijn geen sirenen maar hebben wel elk een eigen verborgen kracht. Die stellen ze ten dienste aan de liefde, de aarde, de mensheid die op de vlucht is en uiteindelijk wil zij - "de vrijheidsstrijdster" - zegevieren. Haar vlag kent geen kleur, geen tekens maar is voor alles en iedereen.
 
 In de vogelvrouw zag ik ook een verband met een boom of een bloem die de onderwereld met de bovenwereld verbindt. Hun reikwijdte is veel groter dan het hier en nu en het hier en daar. Wat onder de grond wortelt of ontkiemt komt tot bloei en laat zich door oogst en zaad over de aarde verspreiden. Een kringloop waar Persephone haar zomer- en winterverblijf mee verbindt.
 
