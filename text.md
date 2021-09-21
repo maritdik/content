@@ -34,7 +34,7 @@ De fallusdraagster is opmerkelijk genoeg de enige figuur die contact maakt met d
 
 Dat is wat de sirenen zingen. In de Griekse tragedies waren de sirenen aanvankelijk vogels. Hun gezang gaf licht op een verborgen wereld. Die van de dood. 
 
-De buik van "de zwangere vrouw" is als de aarde. Hier ontstaat en groeit het leven. Dit besef dragen vrouwen van jongs af aan met zich mee.
+In de muurprint zijn 4 vrouwfiguren. De buik van "de zwangere vrouw" is als de aarde. Hier ontstaat en groeit het leven. Dit besef dragen vrouwen van jongs af aan met zich mee.
 "De liefde" staat niet op zichzelf maar verbindt de mensen met elkaar. Iets waar we niet alleen vanuit ons hart maar ook met verstand mee om moeten gaan. Zij kijkt ons aan.In dit werk verbindt verbindt "de vogelvrouw" de grond waarop zij loopt met de lucht waarin ze vliegt. Daardoor kan ze vluchtelingen redden naar een betere toekomst. 
 
 Deze vrouwen zijn geen sirenen maar hebben wel elk een eigen verborgen kracht. Die stellen ze ten dienste aan de liefde, de aarde, de mensheid die op de vlucht is en uiteindelijk wil zij, de vrijheidsstrijdster zegevieren. Haar vlag kent geen kleur, geen tekens maar is voor alles en iedereen.
@@ -44,6 +44,9 @@ In de vogelvrouw zag ik ook een verband met een boom of een bloem die de onderwe
 Kunstenaars kennen ook een kringloop. Die van broeden, dromen en dan tot iets neerzetten. Het is een voortdurend proces.
 
 In discussies over klimaat, machtsverhoudingen, vluchtelingen-vraagstukken is het tegenwoordig minstens even vaak de vrouw als de man die het woord voert. Met dit werk wil ik de kracht van vrouwen laten zien.
+
+Al enige tijd wilde ik een extra grote linosnede maken. Nu wij in Eindhoven bij De Fabriek voor OGENBLIKSEM elk een grote muur ter beschikking kregen om naar eigen idee te vullen kon ik een werk maken dat gebaseerd zou zijn op dit proces van drukken. Met behulp van grote tekeningen en cutouts heb ik stempels gemaakt die ik in Eindhoven op de muur drukte.
+
 
 Marit Dik, augustus 2021
 
