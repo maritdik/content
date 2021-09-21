@@ -1,6 +1,7 @@
 
 # Selection of articles / media
 
+* [Aantekeningen bij de grote handprint op de muur als onderdeel van OGENBLIKSEM 10 , aug 2021]( #aantekeningen-bij-de-grote-handprint)
 * [Ode aan de kwetsbaarheid, Myrthe Meester, 2021](#ode-aan-de-kwetsbaarheid-Myrthe-Meester)
 * [over "Een zusje" door Jurjen K. van der Hoek , 2020](zus-met-down-blijft-altijd-zusje)
 * [Aantekeningen over de natuur in mijn werk, eigen tekst, 2020](#aantekeningen-over-de-natuur)
@@ -13,6 +14,31 @@
 * [KunstNetTV, 2015](#KunstnetTV-2015-Alkmaarse-kunstenaar-Marit-Dik-verbeeldt-vluchtige-momenten)
 * [Een zachte vloeiende stroom ribbelt over het doek, Donna Wolf, 2009](#een-zachte-vloeiende-stroom-ribbelt-over-het-doek-2009)
 * [THIS IS A LOVESONG, Lynn Woods, 2009](#this-is-a-lovesong-2009)
+
+---
+
+### Aantekeningen bij de grote handprint op de muur, onderdeel van OGENBLIKSEM 10, Eindhoven, de Fabriek, sept 2021 
+
+## NOW STOP YOUR SHIP AND LISTEN TO OUR VOICES
+
+“Now stop your ship and listen to our voices. All those who pass this way hear honeyed song poured from our mouths. The music brings them joy and they go on their way with greater knowledge.” (vertaling Emily Wilson, The Odyssey, 2017)
+
+Dat is wat de sirenen zingen. In de Griekse tragedies waren de sirenen aanvankelijk vogels. Hun gezang gaf licht op een verborgen wereld. Die van de dood. 
+
+De buik van "de zwangere vrouw" is als de aarde. Hier ontstaat en groeit het leven. Dit besef dragen vrouwen van jongs af aan met zich mee.
+"De liefde" staat niet op zichzelf maar verbindt de mensen met elkaar. Iets waar we niet alleen vanuit ons hart maar ook met verstand mee om moeten gaan. Zij kijkt ons aan.In dit werk verbindt verbindt "de vogelvrouw" de grond waarop zij loopt met de lucht waarin ze vliegt. Daardoor kan ze vluchtelingen redden naar een betere toekomst. 
+
+Deze vrouwen zijn geen sirenen maar hebben wel elk een eigen verborgen kracht. Die stellen ze ten dienste aan de liefde, de aarde, de mensheid die op de vlucht is en uiteindelijk wil zij, de vrijheidsstrijdster zegevieren. Haar vlag kent geen kleur, geen tekens maar is voor alles en iedereen.
+
+In de vogelvrouw zag ik ook een verband met een boom of een bloem die de onderwereld met de bovenwereld verbindt. Hun reikwijdte is veel groter dan het hier en nu en het hier en daar. Wat onder de grond wortelt of ontkiemt komt tot bloei en laat zich door oogst en zaad over de aarde verspreiden. Een kringloop waar Persephone haar zomer- en winterverblijf mee verbindt.
+
+Kunstenaars kennen ook een kringloop. Die van broeden, dromen en dan tot iets neerzetten. Het is een voortdurend proces.
+
+In discussies over klimaat, machtsverhoudingen, vluchtelingen-vraagstukken is het tegenwoordig minstens even vaak de vrouw als de man die het woord voert. Met dit werk wil ik de kracht van vrouwen laten zien.
+
+Marit Dik, augustus 2021
+
+
 
 ---
 ## ODE AAN DE KWETSBAARHEID
