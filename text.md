@@ -13,7 +13,7 @@
 * [Avondlog Wim Noordhoek, 2015](#avondlog-wim-noordhoek-2015-marit-dik-in-de-derde-dimensie-)
 * [Mister Motley, Alex de Vries, mei 2015](#mister-motley-mei-2015)
 * [Galerie Helder, Alex de Vries, Den Haag, 2015](#galerie-helder-den-haag-10-januari-15-februari-2015)
-* [KunstNetTV, 2015](#KunstnetTV-2015-Alkmaarse-kunstenaar-Marit-Dik-verbeeldt-vluchtige-momenten)
+* [KunstNetTV, 2015](#KunstnetTV-2015)
 * [Een zachte vloeiende stroom ribbelt over het doek, Donna Wolf, 2009](#een-zachte-vloeiende-stroom-ribbelt-over-het-doek-2009)
 * [THIS IS A LOVESONG, Lynn Woods, 2009](#this-is-a-lovesong-2009)
 
