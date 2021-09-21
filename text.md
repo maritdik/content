@@ -1,6 +1,8 @@
 
 # Selection of articles / media
 
+
+* [Uit de woorden van Rebecca Nelemans bij de afsluiting van OGENBLIKSEM 10, sept 2021](Rebecca-Nelemans-bij-OGENBLIKSEM-10-,-sept-2021)
 * [Aantekeningen bij de grote handprint op de muur als onderdeel van OGENBLIKSEM 10 , aug 2021]( #aantekeningen-bij-de-grote-handprint)
 * [Ode aan de kwetsbaarheid, Myrthe Meester, 2021](#ode-aan-de-kwetsbaarheid-Myrthe-Meester)
 * [over "Een zusje" door Jurjen K. van der Hoek , 2020](zus-met-down-blijft-altijd-zusje)
@@ -14,6 +16,13 @@
 * [KunstNetTV, 2015](#KunstnetTV-2015-Alkmaarse-kunstenaar-Marit-Dik-verbeeldt-vluchtige-momenten)
 * [Een zachte vloeiende stroom ribbelt over het doek, Donna Wolf, 2009](#een-zachte-vloeiende-stroom-ribbelt-over-het-doek-2009)
 * [THIS IS A LOVESONG, Lynn Woods, 2009](#this-is-a-lovesong-2009)
+
+---
+### Uit de woorden van Rebecca Nelemans bij de afsluiting van OGENBLIKSEM 10, sept 2021
+
+......Marit Dik die we uit eerdere edities kennen van vaak verhalende voorstellingen met allerlei referenties aan de meerluiken uit de kunstgeschiedenis, positioneert zich aan de rand van de zaal. Met haar  groene omkadering borduurt ze voort op de kadrering van haar buren, maar keert ze ook een beetje de rug naar de rest, maar vooral naar de toyboy van Jans. Richting het open raam brengt zij een ode aan de sterke vrouw: van de klassieke sphinx tot de oermoeder, van de activiste tot de feministe die de fallus als wapen in de hand draagt. Een mooie verwijzing naar Louise Bourgeois. Opvallend dat de uil, symbool van wijsheid, juist deze fallusdraagster kroont. 
+In de complementaire kleuren rood en groen en de grafische vorm doet het denken aan een educatieve billboard. Zoals we die nog regelmatig zien in gebieden met veel analfabeten. 
+De fallusdraagster is opmerkelijk genoeg de enige figuur die contact maakt met de andere spelers in de zaal. Met het Vergroeisel van PJ bijvoorbeeld. Het vormt ook een opgeheven middelvinger naar het masculine gebeuren tegenover haar......
 
 ---
 
@@ -68,7 +77,7 @@ tekst gepubliceerd in Atelier 35/210
 
 ### Jurjen K. van der Hoek, 2020
 
-[tekst incl. afbeeldingen: https://jurjenkvanderhoek.tumblr.com:]( https://jurjenkvanderhoek.tumblr.com/post/628133000692072448/zus-met-down-blijft-altijd-zusje)
+[tekst en afbeeldingen: https://jurjenkvanderhoek.tumblr.com:]( https://jurjenkvanderhoek.tumblr.com/post/628133000692072448/zus-met-down-blijft-altijd-zusje)
 
 Het maakt indruk. Een leven met een verstandelijk gehandicapte broer of zus, oom of tante. Een lid van de familie dat er enigszins tussenuit valt. Een vreemde eend in de bijt. Niet om het abnormale, maar omdat het extra zorg en aandacht verdient. Zo’n broertje of zusje, de verkleinvorm blijft op elke leeftijd, lijkt een last maar schept meer vreugde in het leven. Met liefde denk ik daaraan terug. Het boek “Een zusje” ligt me dan ook na aan het hart.
 De oudste zus van Marit Dik heeft het syndroom van Down. In een aan haarzelf opgelegd bijzonder project heeft Dik haar zus geportretteerd. Momenten uit haar leven aan de hand van oude zwartwit foto’s. Het geeft een tijdsbeeld, dat spant tussen geboorte en dood. Twee handen vol van de reeks schilderijen zijn afgedrukt in de uiitgave met het lichtgroene kaft. Een kleur die past bij een smetteloos leven, een zijn van een kind dat het altijd is gebleven, een zusje.
@@ -84,8 +93,6 @@ Uitgave “Mijn zusje”, schilderijen van Marit Dik, tekst van Rosa Juno Streek
 
 ## Aantekeningen over de natuur in mijn werk
 
-
-
 Er ligt een snelweg, bijna klaar, van Warschau naar het oosten, naar Bialystok. Van daar is het niet ver meer naar Bialowieza. Dan ben je midden in het Poolse deel van het oerbos.
 
 
@@ -96,15 +103,9 @@ Een tuin is iets anders dan de natuur. Een tuin is een concrete plek. De natuur 
 Zoals de tuin zich verhoudt tot de natuur, zo staat het sprookjesbos tegenover het oerbos. Desondanks loopt in mijn werk het één in het ander over. Soms zijn het de kleine (blote) mensjes die zich laten zien en die de vrijheid vieren en andere keren gaat het om de lichtplekken in het bos. Een geelgors kan aanleiding zijn tot een diorama en de zon tussen de takken kan een schilderij worden. Maar ook schilderijen uit de kunstgeschiedenis kunnen een basis zijn voor een werk, bijvoorbeeld een serie vrij naar werk van Jan van Goyen.
 De aanzet tot mijn werk is daarentegen meestal terug te koppelen naar een verblijf ergens in een landschappelijke omgeving: bijvoorbeeld  een artist-in-residence in de Catskills in Amerika of logeerweken in een bos op de Veluwe of een bezoek aan het oerbos in Polen. Mijn actie radius is tijdens zo’n verblijf klein. Liefst fiets of loop ik dan. De ervaring van het ergens te zijn geweest en iets te hebben gezien is nodig voor mij om werk te maken.
 
-Voorbereiding voor Nature Seekers 
+Voorbereiding mijn bijdrage aan Nature Seekers , duotentoonstelling met Emmy Bergsma
 
-Duotentoonstelling met Emmy Bergsma
-
-27, 28 en 29 maart 2020  (uitgesteld )
-
-CW12, Curieweg 12, Zwolle 
-
-eigen tekst, februari 2020
+Marit Dik, februari 2020
 
 ---
 ## Openingswoord bij ARCADISCHE BRIES, 2019 
