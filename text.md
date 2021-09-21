@@ -7,7 +7,7 @@
 * [Ode aan de kwetsbaarheid, Myrthe Meester, 2021](#ode-aan-de-kwetsbaarheid-Myrthe-Meester)
 * [over "Een zusje" door Jurjen K. van der Hoek , 2020](#zus-met-down-blijft-altijd-zusje)
 * [Aantekeningen over de natuur in mijn werk, eigen tekst, 2020](#aantekeningen-over-de-natuur)
-* [Openingswoord bij ARCADISCHE BRIES, Paul Klemann, 2019](#Openingswoord)
+* [Openingswoord bij ARCADISCHE BRIES, Paul Klemann, 2019](#Openingswoord-bij-arcadische-bries-2019)
 * [Illusie in schuim, Joost Pollmann, 2017](#illusie-in-schuim)
 * [Avondlog Wim Noordhoek, 2017](#avondlog-wim-noordhoek-2017)
 * [Avondlog Wim Noordhoek, 2015](#avondlog-wim-noordhoek-2015-marit-dik-in-de-derde-dimensie-)
