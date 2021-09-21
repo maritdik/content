@@ -3,10 +3,10 @@
 
 
 * [Uit de woorden van Rebecca Nelemans bij de afsluiting van OGENBLIKSEM 10, sept 2021](#Rebecca-Nelemans-bij-OGENBLIKSEM-10-,-sept-2021)
-* [Aantekeningen bij de grote handprint op de muur als onderdeel van OGENBLIKSEM 10 , aug 2021](#aantekeningen-bij-de-grote-handprint)
-* [Ode aan de kwetsbaarheid, Myrthe Meester, 2021](#ode-aan-de-kwetsbaarheid-Myrthe-Meester)
-* [over "Een zusje" door Jurjen K. van der Hoek , 2020](#zus-met-down-blijft-altijd-zusje)
-* [Aantekeningen over de natuur in mijn werk, eigen tekst, 2020](#aantekeningen-over-de-natuur)
+* [Aantekeningen bij de grote handprint op de muur als onderdeel van OGENBLIKSEM 10 , aug 2021](#now-stop-your-ship-and-listen-to-our-voices)
+* [Ode aan de kwetsbaarheid, Myrthe Meester, 2021](#ode-aan-de-kwetsbaarheid)
+* [Zus met Down blijft altijd zusje, door Jurjen K. van der Hoek , 2020](#zus-met-down-blijft-altijd-zusje)
+* [Aantekeningen over de natuur in mijn werk, eigen tekst, 2020](#aantekeningen-over-de-natuur-in-mijn-werk)
 * [Openingswoord bij ARCADISCHE BRIES, Paul Klemann, 2019](#Openingswoord-bij-arcadische-bries-2019)
 * [Illusie in schuim, Joost Pollmann, 2017](#illusie-in-schuim)
 * [Avondlog Wim Noordhoek, 2017](#avondlog-wim-noordhoek-2017)
@@ -26,9 +26,9 @@ De fallusdraagster is opmerkelijk genoeg de enige figuur die contact maakt met d
 
 ---
 
-### Aantekeningen bij de grote handprint op de muur, onderdeel van OGENBLIKSEM 10, Eindhoven, de Fabriek, sept 2021 
-
 ## NOW STOP YOUR SHIP AND LISTEN TO OUR VOICES
+
+### Aantekeningen bij de grote handprint op de muur, onderdeel van OGENBLIKSEM 10, Eindhoven, de Fabriek, sept 2021 
 
 “Now stop your ship and listen to our voices. All those who pass this way hear honeyed song poured from our mouths. The music brings them joy and they go on their way with greater knowledge.” (vertaling Emily Wilson, The Odyssey, 2017)
 
