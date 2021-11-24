@@ -1,3 +1,18 @@
+## ArtSale CW12
+
+27 en 28 november, 11.00 - 17.00 uur
+
+CW12, Curieweg 12, Zwolle
+
+4 kleine werkjes uit de serie Forest,2020 (15/9 cm acryl schilderijtje op 21/15 cm papier) doen mee in deze verkooptentoonstelling. Per stuk 350,- ; meer, dan korting)
+Bij belangstelling mail maritdik@gmail.com
+
+[www.cw12.nl](https\:www.cw12.nl)
+
+![serieforest,2020](https://live.staticflickr.com/65535/51702983783_e7810f1062_z.jpg)
+
+________________________________________________________________________________________________________________________
+
 ## A safe place
 
 Opening 01-10-2021
