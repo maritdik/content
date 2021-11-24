@@ -13,11 +13,15 @@ Bij belangstelling mail [maritdik@gmail.com](mailto:maritdik@gmail.com)
 
 ________________________________________________________________________________________________________________________
 
-## A safe place
+## A safe place 
+
+Duopresentatie met Remco Dikken in de groepstentoonstelling 50/50.
 
 Opening 01-10-2021
 
 Playroom, Zaandam
+
+
 ________________________________________________________________________________________________________________________
 
 ## OGENBLIKSEM #10
@@ -26,6 +30,9 @@ Werkperiode 27-08-2021 / 14-09-2021 , FINISSAGE 15-09-2021
 
 De Fabriek, Eindhoven
 
+[De Fabriek Eindhoven](https\:www.defabriekeindhoven.com)
+
+![DeFabriek](https://live.staticflickr.com/65535/51503318974_b870ac8a73.jpg)
 ________________________________________________________________________________________________________________________
 
 ## METAMORFOSE
