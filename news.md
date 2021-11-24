@@ -5,7 +5,7 @@
 CW12, Curieweg 12, Zwolle
 
 4 kleine werkjes uit de serie Forest,2020 (15/9 cm acryl schilderijtje op 21/15 cm papier) doen mee in deze verkooptentoonstelling. Per stuk 350,- ; meer, dan korting)
-Bij belangstelling mail maritdik@gmail.com
+Bij belangstelling mail [maritdik@gmail.com](mailto:maritdik@gmail.com)
 
 [www.cw12.nl](https\:www.cw12.nl)
 
