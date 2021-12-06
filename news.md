@@ -2,7 +2,9 @@
 
 ### Salon 2021
 
-Opening: vrijdag 10 december van 12-16 uur RESERVEER VOOR DE OPENING [www.artietamicitiae.nl](https\:www.artietamicitiae.nl)
+Opening: vrijdag 10 december van 12-16 uur 
+
+RESERVEER VOOR DE OPENING [www.artietamicitiae.nl](https\:www.artietamicitiae.nl)
 
 Zaterdag 11 december 2021 t/m zondag 9 januari 2022 
 
