@@ -14,7 +14,7 @@ Dinsdag t/m zondag van 10 – 17 uur
 
 ![rescueing](https://live.staticflickr.com/65535/51652451195_e1061e2506.jpg)
 
-Ingebrachte werk: rescueing the white animal, 40 x 35 cm, olieverf op linnen
+Ingebrachte werk: rescuing the white animal, 40 x 35 cm, olieverf op linnen
 ________________________________________________________________________________________________________________________
 
 
