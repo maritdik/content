@@ -4,7 +4,7 @@
 
 Opening: vrijdag 10 december van 12-16 uur 
 
-RESERVEER VOOR DE OPENING [www.artietamicitiae.nl](https\:www.artietamicitiae.nl)
+RESERVEER VOOR DE OPENING [www.artietamicitiae.nl](https://www.artietamicitiae.nl)
 
 Zaterdag 11 december 2021 t/m zondag 9 januari 2022 
 
@@ -27,8 +27,6 @@ CW12, Curieweg 12, Zwolle
 4 kleine werkjes uit de serie Forest,2020 (15/9 cm acryl schilderijtje op 21/15 cm papier) doen mee in deze verkooptentoonstelling. 
 Bij belangstelling mail [maritdik@gmail.com](mailto:maritdik@gmail.com)
 
-[www.cw12.nl](https\:www.cw12.nl)
-
 ![serieforest,2020](https://live.staticflickr.com/65535/51702983783_e7810f1062_z.jpg)
 
 ________________________________________________________________________________________________________________________
@@ -50,7 +48,7 @@ Werkperiode 27-08-2021 / 14-09-2021 , FINISSAGE 15-09-2021
 
 De Fabriek, Eindhoven
 
-[De Fabriek Eindhoven](https\:www.defabriekeindhoven.com)
+[De Fabriek Eindhoven](https://www.defabriekeindhoven.com)
 
 ![DeFabriek](https://live.staticflickr.com/65535/51503318974_b870ac8a73.jpg)
 ________________________________________________________________________________________________________________________
