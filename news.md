@@ -1,6 +1,6 @@
 ## Arti et Amicitiae
 
-### Salon 2021 
+### Salon  
 
 will be open soon:  [www.arti.nl](https://www.arti.nl)
 
