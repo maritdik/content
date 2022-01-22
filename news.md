@@ -1,16 +1,9 @@
 ## Arti et Amicitiae
 
-### Salon 2021
+### Salon 2021 
 
-Opening: vrijdag 10 december van 12-16 uur 
+will be open soon:  [www.arti.nl](https://www.arti.nl)
 
-RESERVEER VOOR DE OPENING  [www.arti.nl](https://www.arti.nl)
-
-Zaterdag 11 december 2021 t/m zondag 9 januari 2022 
-
-Dinsdag t/m zondag van 10 – 17 uur
-
-(gesloten 25 december 2021 t/m 1 januari 2022)
 
 ![rescueing](https://live.staticflickr.com/65535/51652451195_e1061e2506.jpg)
 
