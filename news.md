@@ -2,7 +2,7 @@
 
 ### Salon  
 
-will be open soon:  [www.arti.nl](https://www.arti.nl)
+t/m 6 februari :  [www.arti.nl](https://www.arti.nl)
 
 
 ![rescueing](https://live.staticflickr.com/65535/51652451195_e1061e2506.jpg)
@@ -74,7 +74,7 @@ ________________________________________________________________________________
 
 21 maart - 21 juni 2021
 
-Kunstroute langs kleine gele vitrines buiten op het Wilhelmina Gasthuis-terrein, Amsterdam
+Kunstroute op het Wilhelmina Gasthuis-terrein, Amsterdam
 
 ![ruimtelijketekeningmaken](https://live.staticflickr.com/65535/51164277975_672a4f417d_w.jpg)
 
