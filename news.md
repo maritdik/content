@@ -1,3 +1,24 @@
+## KCB
+
+### Contrasten
+
+
+
+t/m 29 mei 2022
+
+Groepstentoonstelling KCB in de Villa van Museum Kranenburgh in Bergen
+
+Hoflaan 26
+
+1861 CR  Bergen NH
+
+Twee linosnedes doen mee, beide in oplage 4, handgedrukt.
+
+![KCB Contrasten](https://live.staticflickr.com/65535/52042322255_bdb483d360_z.jpg)
+
+________________________________________________________________________________________________________________________
+
+
 ## Arti et Amicitiae
 
 ### Salon  
