@@ -1,5 +1,3 @@
 
 
-
-![studioviewwithswans](https://live.staticflickr.com/65535/51036409433_6a37b7b46d_h.jpg)
-
+![studioview](https://live.staticflickr.com/65535/52451959975_81a646e2c6_k.jpg)
