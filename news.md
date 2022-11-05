@@ -3,6 +3,17 @@
 ### OGENBLIKSEM #11
 
 October 30 - December 18 . 2022
+
+![OGENBLIKSEM # 11](https://live.staticflickr.com/65535/52478805423_ba79ae9952_z.jpg)
+
+In de tuin van het Centraal Museum heeft elk van de 11 kunstenaars voor OGENBLIKSEM # 11 een werk gemaakt voor één van de nissen in de gevel van het museum. Mijn bijdrage is het resultaat van een houtsnede van 1 bij 2 meter en draagt de titel “Meebewegen”. 
+
+Kunstenaars: Dick van Berkum, Margo van Berkum, Chantal Breukers, Marit Dik, Rosa Everts, Harm Hajonides, 
+
+Sabine Liedtke, Jans Muskee, Marisa Rappard, PJ Roggeband , Kiana Girigorie. 
+
+[klik : OGENBLIKSEM in Centraal Museum Utrecht](https://www.centraalmuseum.nl/nl/tentoonstellingen/ogenbliksem)
+
 ________________________________________________________________________________________________________________________
 
 ## open studio
