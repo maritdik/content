@@ -14,6 +14,11 @@ Sabine Liedtke, Jans Muskee, Marisa Rappard, PJ Roggeband , Kiana Girigorie.
 
 [klik : OGENBLIKSEM in Centraal Museum Utrecht](https://www.centraalmuseum.nl/nl/tentoonstellingen/ogenbliksem)
 
+
+Ondersteund door Stichting Stokroos
+
+![Stichting Stokroos](https://live.staticflickr.com/65535/52505492467_a9733ac823_m.jpg)
+
 ________________________________________________________________________________________________________________________
 
 ## open studio
