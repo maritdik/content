@@ -1,7 +1,7 @@
 
 # Selection of articles / media
 
-
+* [Blog Centraal Museum / Laurie Cluitmans over OGENBLIKSEM](https://www.centraalmuseum.nl/nl/over-het-museum/nieuws-en-pers/kort-nieuws-en-blogs/een-samenwerking-en-een-vruchtbare-botsing)
 * [Uit de woorden van Rebecca Nelemans bij de afsluiting van OGENBLIKSEM 10, sept 2021](#uit-de-woorden-van-Rebecca-Nelemans-bij-de-afsluiting-van-OGENBLIKSEM-10-sept-2021)
 * [Aantekeningen bij de grote handprint op de muur als onderdeel van OGENBLIKSEM 10 , aug 2021](#now-stop-your-ship-and-listen-to-our-voices)
 * [Ode aan de kwetsbaarheid, Myrthe Meester, 2021](#ode-aan-de-kwetsbaarheid)
@@ -18,6 +18,13 @@
 * [THIS IS A LOVESONG, Lynn Woods, 2009](#this-is-a-lovesong-2009)
 
 ---
+
+### Blog Centraal Museum over OGENBLIKSEM door Laurie Cluitmans
+
+https://www.centraalmuseum.nl/nl/over-het-museum/nieuws-en-pers/kort-nieuws-en-blogs/een-samenwerking-en-een-vruchtbare-botsing
+
+---
+
 ### Uit de woorden van Rebecca Nelemans bij de afsluiting van OGENBLIKSEM 10, sept 2021
 
 ......Marit Dik die we uit eerdere edities kennen van vaak verhalende voorstellingen met allerlei referenties aan de meerluiken uit de kunstgeschiedenis, positioneert zich aan de rand van de zaal. Met haar  groene omkadering borduurt ze voort op de kadrering van haar buren, maar keert ze ook een beetje de rug naar de rest, maar vooral naar de toyboy van Jans. Richting het open raam brengt zij een ode aan de sterke vrouw: van de klassieke sphinx tot de oermoeder, van de activiste tot de feministe die de fallus als wapen in de hand draagt. Een mooie verwijzing naar Louise Bourgeois. Opvallend dat de uil, symbool van wijsheid, juist deze fallusdraagster kroont. 
