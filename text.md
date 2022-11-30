@@ -1,7 +1,7 @@
 
 # Selection of articles / media
 
-* [Blog Centraal Museum / Laurie Cluitmans over OGENBLIKSEM](https://www.centraalmuseum.nl/nl/over-het-museum/nieuws-en-pers/kort-nieuws-en-blogs/een-samenwerking-en-een-vruchtbare-botsing)
+* [Blog Centraal Museum over OGENBLIKSEM door Laurie Cluitmans](https://www.centraalmuseum.nl/nl/over-het-museum/nieuws-en-pers/kort-nieuws-en-blogs/een-samenwerking-en-een-vruchtbare-botsing)
 * [Uit de woorden van Rebecca Nelemans bij de afsluiting van OGENBLIKSEM 10, sept 2021](#uit-de-woorden-van-Rebecca-Nelemans-bij-de-afsluiting-van-OGENBLIKSEM-10-sept-2021)
 * [Aantekeningen bij de grote handprint op de muur als onderdeel van OGENBLIKSEM 10 , aug 2021](#now-stop-your-ship-and-listen-to-our-voices)
 * [Ode aan de kwetsbaarheid, Myrthe Meester, 2021](#ode-aan-de-kwetsbaarheid)
