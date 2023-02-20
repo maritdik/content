@@ -1,3 +1,11 @@
+## artist in residence
+
+### Studio Edvard Munch Ekely, Norway
+
+March 2023
+
+________________________________________________________________________________________________________________________
+
 ## Centraal Museum Utrecht
 
 ### OGENBLIKSEM #11
