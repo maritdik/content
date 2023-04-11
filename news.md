@@ -1,3 +1,28 @@
+## Kunst Centrum Haarlem
+
+### BINNENSKAMERS / rooms I made to love you
+
+15 april - 3 juni 2023
+
+![Rooms I made to love you](https://live.staticflickr.com/65535/52809373403_5449c4a048_z.jpg)
+
+Holger Bunk, Marit Dik, Maaike Nijlunsing en Michel Campfens.
+
+De curator van deze tentoonstelling is Joost Pollmann. Hij bracht vier kunstenaars samen die elk op een heel eigen manier ruimten of kamers weergeven, in verschillende technieken,met verschillende benaderingen en met menselijke aan- en afwezigheid. Samen vormen deze kunstwerken een mooie balans tussen abstractie en figuratie, tussen plat en ruimtelijk, tussen man en vrouw, tussen leegte en levenslust.
+Opening zaterdag 15 april om 15:00 uur. 
+
+Kunst Centrum Haarlem
+Gedempte Oude Gracht 117-121
+2011 GP Haarlem
+023 532 78 95 / 06 4111 26 48
+ 
+Open van dinsdag t/m zaterdag van 11 – 17 uur_
+
+Een reeks diorama's van mij is in de expositie te zien. 
+
+Voor meer info over de kunstenaars en randprogrammering raadpleeg https:// www.kunstcentrum-haarlem.nl
+______________________________________________________________________________________________________________________
+
 ## artist in residence
 
 ### Studio Edvard Munch Ekely, Norway
