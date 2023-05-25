@@ -1,5 +1,7 @@
 ## Kunst Centrum Haarlem
 
+### >>>> 27 mei, 15.00 uur gesprek Joost Pollmann - Marit Dik 
+
 ### BINNENSKAMERS / rooms I made to love you
 
 15 april - 3 juni 2023
