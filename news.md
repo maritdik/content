@@ -21,7 +21,8 @@ Gedempte Oude Gracht 117-121
 
 023 532 78 95 / 06 4111 26 48
  
-Open van dinsdag t/m zaterdag van 11 – 17 uur_
+Open van dinsdag t/m zaterdag van 11 – 17 uur
+
 
 Een reeks diorama's van mij is in de expositie te zien. 
 
