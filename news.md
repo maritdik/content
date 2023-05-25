@@ -11,11 +11,14 @@
 Holger Bunk, Marit Dik, Maaike Nijlunsing en Michel Campfens.
 
 De curator van deze tentoonstelling is Joost Pollmann. Hij bracht vier kunstenaars samen die elk op een heel eigen manier ruimten of kamers weergeven, in verschillende technieken,met verschillende benaderingen en met menselijke aan- en afwezigheid. Samen vormen deze kunstwerken een mooie balans tussen abstractie en figuratie, tussen plat en ruimtelijk, tussen man en vrouw, tussen leegte en levenslust.
-Opening zaterdag 15 april om 15:00 uur. 
+
 
 Kunst Centrum Haarlem
+
 Gedempte Oude Gracht 117-121
+
 2011 GP Haarlem
+
 023 532 78 95 / 06 4111 26 48
  
 Open van dinsdag t/m zaterdag van 11 – 17 uur_
