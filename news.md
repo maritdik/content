@@ -12,7 +12,7 @@ ________________________________________________________________________________
 
 March 2023
 
-![Munchatelier](https://live.staticflickr.com/65535/52808360292_5434f19bd4_z.jpg) 
+![Munchatelier](https://live.staticflickr.com/65535/52808360292_5434f19bd4.jpg)
 
 
 
