@@ -163,19 +163,7 @@ Check voor tijdslot/tickets en openingstijden de website van het museum [https:/
 
 Tip: In het museum is een bijzondere tentoonstelling te zien "Kunstenaars van Die Brücke".
 
-________________________________________________________________________________________________________________________
 
-
-
-## BINNENSTE BUITEN - WG Kunst
-
-21 maart - 21 juni 2021
-
-Kunstroute op het Wilhelmina Gasthuis-terrein, Amsterdam
-
-![ruimtelijketekeningmaken](https://live.staticflickr.com/65535/51164277975_672a4f417d_w.jpg)
-
-[zie voor plattegrond](https://www.wgkunst.nl/binnenste-buiten)
 
 ________________________________________________________________________________________________________________________
 
@@ -188,50 +176,8 @@ ________________________________________________________________________________
 Een interview door Myrthe Meester, cultuurfilosoof
 
 [zie tekst](https://www.maritdik.nl/text)
-________________________________________________________________________________________________________________________
-
-### SALON Arti et Amicitiae
-
-eindejaarstentoonstelling
-
-![Forest Jump](https://live.staticflickr.com/65535/50766568892_6edbd1cc4d_w.jpg)
-
-(het werk is inmiddels verkocht)
 
 
-______________________________________________________________________________________________________________________
-
-### solotentoonstelling 
-
-## RECHT TERUGKIJKEN
-
-5 september t/m 10 oktober 2020
-
-
-![RECHT TERUGKIJKEN](https://live.staticflickr.com/65535/50184242807_e7b96b0131.jpg)
-
-Tentoonstelling van alle schilderijen en werk op papier uit de serie "Een zusje". 
-
-Tevens de presentatie van het boek met een selectie van de schilderijen (Marit Dik) en kort verhaal (Rosa Juno Streekstra), uitgeverij De Zwaluw, 2020
-
-Projectruimte BMB, Kerkstraat 129A, Amsterdam
-
-do t/m za 12.30 - 17.30 uur en op afspraak
-
-[www.galeriebmb.nl](https://www.galeriebmb.nl/marit-dik-recht-terugkijken-solotentoonstelling_september-oktober-2020-bmb/)
-
-
-________________________________________________________________________________________________________________________
-
-### 19 en 20 september
-
-## NATURE SEEKERS / CW12  -   ZWOLLE  
-
-### MARIT DIK / EMMY BERGSMA
-
-![uitnodiging](https://live.staticflickr.com/65535/50301133763_4b8aa33ae1_c.jpg)
-
-[www.CW12.nl](http://www.CW12.nl)   Curieweg 12 te Zwolle
 
 
 _________________________________________________________________________________________________________________________
@@ -246,7 +192,6 @@ My painting "Night Fall", 2017 is on the cover and in the booklet of the new alb
 
 _________________________________________________________________________________________________________________________
 
-### VERSCHENEN EN TE KOOP: 
 
 ![een zusje](https://live.staticflickr.com/65535/49929955596_af0650d641_w.jpg)
 
@@ -261,7 +206,7 @@ Mijn vroege kinderjaren was ze gewoon mijn oudere zus. Daarna kwam ik er achter 
 Nu zij is overleden wilde ik momenten uit haar leven vastleggen. Aan de hand van oud gevonden fotomateriaal heb ik die geschilderd. Er is een kort verhaal opgenomen van Rosa Juno Streekstra.
 
 Wie belangstelling heeft ( 24 blz, hard cover) kan een berichtje sturen naar [maritdik@gmail.com](mailto:maritdik@gmail.com) 
-of via een p.m. in facebook een boekje bestellen. Het boek is ook verkrijgbaar bij De Eerste Bergensche Boekhandel in Bergen.
+of via een p.m. in facebook een boekje bestellen. 
 
 De prijs: 15 euro (excl portokosten). Graag naam en postadres vermelden in je reactie.
 
@@ -276,7 +221,7 @@ ________________________________________________________________________________
 
 ![lino's](https://live.staticflickr.com/7916/46235075725_d7669a29a4_w.jpg)
 
-verkoopt/verhuurt permanent naast enkele van mijn schilderijen ook een multiple 3Dcollage en diverse linosnedes, waarvan de meeste gedrukt in Leipzig (ingelijst).
+verkoopt/verhuurt permanent naast enkele van mijn schilderijen diverse linosnedes, waarvan de meeste gedrukt in Leipzig (ingelijst).
 
 
 ______________________________________________________________________________________________________________________________
