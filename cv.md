@@ -7,6 +7,7 @@ Education  | |
 1976-1983 |	Psychologie, VU, Vrije Universiteit, Amsterdam 
 1983-2016 |	Psycholoog o.m. voor Esdégé-Reigersdaal
 **Exhibitions**  | 
+2023	| Binnenskamers - Rooms I made to love you, Kunst Centrum Haarlem
 2022	| OGENBLIKSEM #11, Centraal Museum Utrecht
 	| Open Studio
 	| Contrasten, KCB, Bergen, NH
