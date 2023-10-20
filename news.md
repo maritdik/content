@@ -1,11 +1,19 @@
+## Upcoming:
 
+### DUISTER
+
+Nov 5 . 2023 - Jan 7 .2024
+
+Groepstentoonstelling KCB in Kranenburgh, Bergen
+
+![darkdunes](https://live.staticflickr.com/65535/51240570819_0c29c6ed74.jpg)
 
 ________________________________________________________________________________________________________________________
 
 
 ## Selection previous events:
 
-________________________________________________________________________________________________________________________
+
 
 
 ### Studio Edvard Munch Ekely, Norway, Artist in residence, March 2023
@@ -37,7 +45,7 @@ ________________________________________________________________________________
 
 ## Publications:
 
-________________________________________________________________________________________________________________________
+
 
 
 ### Missen als een ronde vorm / The roundness of loss, Hanne Hagenaars, 2023, Art Paper Editions
