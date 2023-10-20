@@ -10,11 +10,13 @@ ________________________________________________________________________________
 
 ### Studio Edvard Munch Ekely, Norway, Artist in residence, March 2023
 
-March 2023
+March 2023. I was very greatful to work in the studio of Edvard Munch for a whole month.
 
-![Munchatelier](https://live.staticflickr.com/65535/52808360292_5434f19bd4.jpg)
+![Munchatelier](https://live.staticflickr.com/65535/52808360292_5434f19bd4.jpg) 
 
-
+![residencyMunchatelier](https://live.staticflickr.com/65535/53271022387_d9bd363905_q.jpg)
+![inspiredvisitasgardstrand](https://live.staticflickr.com/65535/53272381700_67ab781468_q.jpg) 
+![Munchinhisstudio](https://live.staticflickr.com/65535/53272435785_75971ed647_q.jpg)
 
 ________________________________________________________________________________________________________________________
 
