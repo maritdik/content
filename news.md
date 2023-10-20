@@ -20,8 +20,7 @@ ________________________________________________________________________________
 
 ### Centraal Museum Utrecht, OGENBLIKSEM #11
 
-![meebewegen](https://live.staticflickr.com/65535/52501849102_8f9c1c164b_z.jpg)
-
+![meebewegen](https://live.staticflickr.com/65535/52501849102_8f9c1c164b.jpg)
 
 Kunstenaars: Dick van Berkum, Margo van Berkum, Chantal Breukers, Marit Dik, Rosa Everts, Harm Hajonides, 
 
