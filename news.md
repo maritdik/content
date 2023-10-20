@@ -20,9 +20,6 @@ ________________________________________________________________________________
 
 ### Centraal Museum Utrecht, OGENBLIKSEM #11
 
-In de tuin van het Centraal Museum heeft elk van de 11 kunstenaars voor OGENBLIKSEM # 11 een werk gemaakt voor één van de nissen in de gevel van het museum. Mijn bijdrage is het resultaat van een houtsnede van 1 bij 2 meter en draagt de titel “Meebewegen”
-
-
 ![meebewegen](https://live.staticflickr.com/65535/52501849102_8f9c1c164b_z.jpg)
 
 
@@ -55,7 +52,7 @@ ________________________________________________________________________________
 
 ![artikel Atelier magazine](https://live.staticflickr.com/65535/50765678493_901364c7bb_w.jpg)
 
-Een interview door Myrthe Meester, cultuurfilosoof
+Myrthe Meester, cultuurfilosoof
 
 [zie tekst](https://www.maritdik.nl/text)
 
@@ -81,16 +78,11 @@ ________________________________________________________________________________
 
 ### "Een Zusje", een boekje met schilderijen en tekst, Marit Dik / Rosa Juno Streekstra
 
-Het afgelopen jaar heb ik intensief gewerkt aan een project over mijn zus, de oudste van 4 meisjes. Zij had down syndroom. 
-Mijn vroege kinderjaren was ze gewoon mijn oudere zus. Daarna kwam ik er achter dat ze niet zo gewoon gevonden werd als ik dacht. Hoorde ik iemand op straat zeggen: “kijk een ongelukkig kindje” dan vond ik dat erg verwarrend. Inmiddels zijn de tijden veranderd en is er gelukkig meer tolerantie. 
-Nu zij is overleden wilde ik momenten uit haar leven vastleggen. Aan de hand van oud gevonden fotomateriaal heb ik die geschilderd. Er is een kort verhaal opgenomen van Rosa Juno Streekstra.
+24 blz, hard cover
 
-Wie belangstelling heeft ( 24 blz, hard cover) kan een berichtje sturen naar [maritdik@gmail.com](mailto:maritdik@gmail.com) 
-of via een p.m. in facebook een boekje bestellen. 
+[maritdik@gmail.com](mailto:maritdik@gmail.com) 
 
-De prijs: 15 euro (excl portokosten). Graag naam en postadres vermelden in je reactie.
-
-Je belangstelling zal ik met veel plezier ontvangen.
+15 euro (excl portokosten)
 
 
 
@@ -101,7 +93,7 @@ ________________________________________________________________________________
 
 ![lino's](https://live.staticflickr.com/7916/46235075725_d7669a29a4_w.jpg)
 
-verkoopt/verhuurt permanent naast enkele van mijn schilderijen diverse linosnedes, waarvan de meeste gedrukt in Leipzig (ingelijst).
+verkoopt/verhuurt permanent naast enkele van mijn schilderijen en linosnedes, waarvan de meeste gedrukt in Leipzig (ingelijst).
 
 
 ______________________________________________________________________________________________________________________________
