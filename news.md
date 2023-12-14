@@ -6,7 +6,7 @@ untill December 23 . 2023
 
 Amsterdam, Rokin 112
 
-___
+
 
 
 ### DUISTER
@@ -17,7 +17,7 @@ Groepstentoonstelling KCB in Kranenburgh, Bergen
 
 ![darkdunes](https://live.staticflickr.com/65535/51240570819_0c29c6ed74.jpg)
 
-________________________________________________________________________________________________________________________
+___
 
 
 ## Upcoming next year :
@@ -31,8 +31,7 @@ ________________________________________________________________________________
 ### Een vogel brak de Stilte, WG-kunst, Amsterdam, mei 2024
 
 
-________________________________________________________________________________________________________________________
-
+___
 
 
 ## Selection previous events:
@@ -82,32 +81,6 @@ ___
 
 ___
 
-
-### Atelier Magazine
-
-
-![artikel Atelier magazine](https://live.staticflickr.com/65535/50765678493_901364c7bb_w.jpg)
-
-
-interview Myrthe Meester, cultuurfilosoof
-
-[zie tekst](https://www.maritdik.nl/text)
-
-
-
-___
-
-### Ruysdael Quartet : Quart de Nuit 
-
-
-![quart de nuit](https://live.staticflickr.com/65535/50183441288_167a032ebc_n.jpg)
-
-
-
-My painting "Night Fall", 2017 is on the cover and in the booklet of the new album "Quart De Nuit" by the Ruysdael Quartet (Ravel, Dutilleux en Debussy), label Deux-Elles, released June 2020
-
-___
-
 ![een zusje](https://live.staticflickr.com/65535/49929955596_af0650d641_w.jpg)
 
 
@@ -130,9 +103,6 @@ ___
 
 
 ### Kunstuitleen Museum Kranenburgh Bergen 
-
-![lino's](https://live.staticflickr.com/7916/46235075725_d7669a29a4_w.jpg)
-
 
 verkoopt/verhuurt permanent naast enkele van mijn schilderijen en linosnedes, waarvan de meeste gedrukt in Leipzig (ingelijst).
 
