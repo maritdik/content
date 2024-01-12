@@ -23,13 +23,13 @@
 
 ### Een vogel brak de stilte
 
-ze hief haar hoofd op
+Ze hief haar hoofd op
 
-en keek uit over het veld
+en keek uit over het veld,
 
 de storm was gaan liggen
 
-een vogel brak de stilte
+een vogel brak de stilte.
 
 
 Marit Dik, 2023
