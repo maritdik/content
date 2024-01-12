@@ -3,15 +3,9 @@
 ## 2024 :
 
 
-### Alles in de wind, DAK, Utrecht, Januar 5. 2024
-
-![allesindewind](https://live.staticflickr.com/65535/53438569473_e7b11cbda7_z.jpg)
-
-_____
-
 ### Rijksmuseum Kampen, Meidenpracht en vrouwenkracht, 
 
-Tanja Ritterbex | Beth Namenwirth | Marit Dik
+### Tanja Ritterbex | Beth Namenwirth | Marit Dik
 
 March 22 - September 15 - 2024
 
@@ -22,10 +16,20 @@ _____
 
 ### Een vogel brak de Stilte, WG-kunst, Amsterdam, mei 2024
 
+### Marit Dik (grote houtsnedes)
+
+### gasten: Klaske Oenema (teksten), Thomas Siemon en Jullienne Jattiot (grafiek)
+
+![vogel](https://live.staticflickr.com/65535/53459260054_c734882c41_n.jpg) 
+
+_____
 
 
+### Alles in de wind, DAK, Utrecht, Januar 5. 2024
 
+![allesindewind](https://live.staticflickr.com/65535/53438569473_e7b11cbda7_z.jpg)
 
+_____
 
 _____
 
