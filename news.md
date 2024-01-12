@@ -74,7 +74,7 @@ ___
 
 ### Beeldrijm, Jedithja de Groot, 2023, Uitgeverij Komma
 
-!beeldrijm](https://live.staticflickr.com/65535/53458098877_f30355f149_n.jpg)
+![beeldrijm](https://live.staticflickr.com/65535/53458098877_f30355f149_n.jpg)
 
 _____
 
