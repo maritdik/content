@@ -1,37 +1,35 @@
 
 
-### Salon Arti et Amicitiae
-
-untill December 23 . 2023
-
-Amsterdam, Rokin 112
-
-
-
-
-### DUISTER
-
-Nov 5 . 2023 - Jan 7 .2024
-
-Groepstentoonstelling KCB in Kranenburgh, Bergen
-
-![darkdunes](https://live.staticflickr.com/65535/51240570819_0c29c6ed74.jpg)
-
-___
-
-
-## Upcoming next year :
-
+## 2024 :
 
 
 ### Alles in de wind, DAK, Utrecht, Januar 5. 2024
 
-### Rijksmuseum Kampen, March 2024
+![allesindewind](https://live.staticflickr.com/65535/53438569473_e7b11cbda7_z.jpg)
+
+_____
+
+### Rijksmuseum Kampen, Meidenpracht en vrouwenkracht, 
+
+Tanja Ritterbex | Beth Namenwirth | Marit Dik
+
+March 22 - September 15 - 2024
+
+[Rijksmuseum Kampen](https://stedelijkmuseumkampen.nl/cms/index.php/uploaden/verwachte-expo-s/390-meidenpracht-en-vrouwenkracht-marit-dik-beth-namenwirth-tanja-ritterbex)
+
+_____
+
 
 ### Een vogel brak de Stilte, WG-kunst, Amsterdam, mei 2024
 
 
-___
+
+
+
+
+_____
+
+_____
 
 
 ## Selection previous events:
