@@ -72,8 +72,11 @@ ___
 
 ## Publications:
 
+### Beeldrijm, Jedithja de Groot, 2023, Uitgeverij Komma
 
+!beeldrijm](https://live.staticflickr.com/65535/53458098877_f30355f149_n.jpg)
 
+_____
 
 ### Missen als een ronde vorm / The roundness of loss, Hanne Hagenaars, 2023, Art Paper Editions
 
