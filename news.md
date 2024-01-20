@@ -3,7 +3,7 @@
 ## 2024 :
 
 
-### Rijksmuseum Kampen, Meidenpracht en vrouwenkracht, 
+### Stedelijk Museum Kampen, Meidenpracht en vrouwenkracht, 
 
 ### Tanja Ritterbex | Beth Namenwirth | Marit Dik
 
