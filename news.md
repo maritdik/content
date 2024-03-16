@@ -1,20 +1,20 @@
+March 22 - September 15 . 2024
 
+## Meidenpracht en vrouwenkracht
 
-## 2024 :
-
-
-### Stedelijk Museum Kampen, Meidenpracht en vrouwenkracht, 
+### Stedelijk Museum Kampen
 
 ### Tanja Ritterbex | Beth Namenwirth | Marit Dik
 
-March 22 - September 15 - 2024
-
-[Rijksmuseum Kampen](https://stedelijkmuseumkampen.nl/cms/index.php/uploaden/verwachte-expo-s/390-meidenpracht-en-vrouwenkracht-marit-dik-beth-namenwirth-tanja-ritterbex)
+[Stedelijk Museum Kampen](https://stedelijkmuseumkampen.nl/cms/index.php/uploaden/verwachte-expo-s/390-meidenpracht-en-vrouwenkracht-marit-dik-beth-namenwirth-tanja-ritterbex)
 
 _____
 
+Upcoming:
 
-### Een vogel brak de Stilte, WG-kunst, Amsterdam, mei 2024
+23 t/m 26 mei 2024
+
+### Een vogel brak de Stilte, WG-kunst, Amsterdam
 
 ### Marit Dik (grote houtsnedes)
 
@@ -24,10 +24,11 @@ _____
 
 _____
 
+28 juni t/m 18 augustus 2024
 
-### Alles in de wind, DAK, Utrecht, Januar 5. 2024
+### De Kapberg, Egmond NH
 
-![allesindewind](https://live.staticflickr.com/65535/53438569473_e7b11cbda7_z.jpg)
+### Regula Maria Müller, Maurice van Tellingen, Marit Dik, Moritz Ebinger, Emo Verkerk
 
 _____
 
