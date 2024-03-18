@@ -6,6 +6,8 @@ March 22 - September 15 . 2024
 
 ### Tanja Ritterbex | Beth Namenwirth | Marit Dik
 
+![kampen](https://live.staticflickr.com/65535/53596219191_523376348a_n.jpg)
+
 [Stedelijk Museum Kampen](https://stedelijkmuseumkampen.nl/cms/index.php/uploaden/verwachte-expo-s/390-meidenpracht-en-vrouwenkracht-marit-dik-beth-namenwirth-tanja-ritterbex)
 
 _____
