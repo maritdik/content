@@ -7,7 +7,7 @@ Education  | |
 1976-1983 |	Psychologie, VU, Vrije Universiteit, Amsterdam 
 1983-2016 |	Psycholoog o.m. voor Esdégé-Reigersdaal
 **Exhibitions**  | 
-2024	| Alles in de wind, Utrecht
+2024	| Alles in de wind, DAK, Utrecht
 2023	| Salon Arti et Amicitiae, Amsterdam
 	| Duister, KCB,Bergen
 	| Binnenskamers - Rooms I made to love you, Kunst Centrum Haarlem
