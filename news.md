@@ -1,6 +1,6 @@
-March 22 - September 15 . 2024
+### March 22 - September 15 . 2024
 
-## Meidenpracht en vrouwenkracht
+## MEIDENPRACHT EN VROUWENKRACHT
 
 ### Stedelijk Museum Kampen
 
@@ -12,7 +12,7 @@ March 22 - September 15 . 2024
 
 _____
 
-Upcoming:
+## Upcoming:
 
 23 t/m 26 mei 2024
 
@@ -34,14 +34,9 @@ _____
 
 _____
 
-_____
-
-_____
 
 
 ## Selection previous events:
-
-
 
 
 ### Studio Edvard Munch Ekely, Norway, Artist in residence, March 2023
