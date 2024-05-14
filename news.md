@@ -23,6 +23,8 @@ _____
 
 ![Kampen](https://live.staticflickr.com/65535/53721742014_e54fb0b829.jpg)
 
+photo: G.J. van Rooij
+
 [Stedelijk Museum Kampen](https://stedelijkmuseumkampen.nl/cms/index.php/uploaden/verwachte-expo-s/390-meidenpracht-en-vrouwenkracht-marit-dik-beth-namenwirth-tanja-ritterbex)
 
 
