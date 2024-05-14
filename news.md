@@ -1,30 +1,36 @@
+### 23 t/m 26 mei 2024
+
+## EEN VOGEL BRAK DE STILTE, WG-Kunst, Amsterdam
+
+### Marit Dik (grote houtsnedes) met gasten: Klaske Oenema (teksten), Thomas Siemon en Jullienne Jattiot (grafiek)
+
+
+
+![vogel](https://live.staticflickr.com/65535/53459260054_c734882c41_n.jpg) 
+
+[WG-Kunst](https://www.wgkunst.nl/marit-dik/)
+
+_____
+
+
 ### March 22 - September 15 . 2024
 
-## MEIDENPRACHT EN VROUWENKRACHT
+# MEIDENPRACHT EN VROUWENKRACHT
 
-### Stedelijk Museum Kampen
+## Stedelijk Museum Kampen
 
 ### Tanja Ritterbex | Beth Namenwirth | Marit Dik
 
-![kampen](https://live.staticflickr.com/65535/53596219191_523376348a_n.jpg)
+![Kampen](https://live.staticflickr.com/65535/53721742014_e54fb0b829.jpg)
 
 [Stedelijk Museum Kampen](https://stedelijkmuseumkampen.nl/cms/index.php/uploaden/verwachte-expo-s/390-meidenpracht-en-vrouwenkracht-marit-dik-beth-namenwirth-tanja-ritterbex)
 
+
+_____
 _____
 
 ## Upcoming:
 
-23 t/m 26 mei 2024
-
-### Een vogel brak de Stilte, WG-kunst, Amsterdam
-
-### Marit Dik (grote houtsnedes)
-
-### gasten: Klaske Oenema (teksten), Thomas Siemon en Jullienne Jattiot (grafiek)
-
-![vogel](https://live.staticflickr.com/65535/53459260054_c734882c41_n.jpg) 
-
-_____
 
 28 juni t/m 18 augustus 2024
 
@@ -32,8 +38,9 @@ _____
 
 ### Regula Maria Müller, Maurice van Tellingen, Marit Dik, Moritz Ebinger, Emo Verkerk
 
-_____
 
+______
+______
 
 
 ## Selection previous events:
