@@ -3,7 +3,7 @@
 
 * [ Mister Motley, Linde Keja](https://www.mistermotley.nl/wanneer-vrouwen-hun-betrekking-met-de-wilde-natuur-bevestigen-over-meidenpracht-vrouwenkracht-in-museum-kampen)
 * [De Volkskrant, Sarah van Binsbergen](https://www.volkskrant.nl/tentoonstellingen/de-expo-meidenpracht-vrouwenkracht-benadert-voorspelbare-stereotypen-met-humor-en-subtiel-commentaar~b58a9929)
- [Blog Kees Hordijk over houtsnedes](https://www.wgkunst.nl/kees-hordijk-over-marit-dik)
+* [Blog Kees Hordijk over houtsnedes](https://www.wgkunst.nl/kees-hordijk-over-marit-dik)
 * [Een vogel brak de stilte](#een-vogel-brak-de-stilte) 
 * [Blog Centraal Museum over OGENBLIKSEM door Laurie Cluitmans](https://www.centraalmuseum.nl/nl/over-het-museum/nieuws-en-pers/kort-nieuws-en-blogs/een-samenwerking-en-een-vruchtbare-botsing)
 * [Meebewegen](#meebewegen)
