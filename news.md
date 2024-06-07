@@ -1,14 +1,35 @@
-### 23 t/m 26 mei 2024
+## Diorama workshop in Stedelijk Museum Kampen 
 
-## EEN VOGEL BRAK DE STILTE, WG-Kunst, Amsterdam
+### zaterdag 29 juni, 13.30 - 16.00
 
-### Marit Dik (grote houtsnedes) met gasten: Klaske Oenema (teksten), Thomas Siemon en Jullienne Jattiot (grafiek)
+Oude Straat 133, Stedelijk Museum Kampen
 
+![diorama Marit Dik](https://live.staticflickr.com/7450/27542735364_67ca13e57f_w.jpg)
 
+Mijn diorama's zijn nu te zien in de tentoonstelling MEIDENPRACHT EN VROUWENKRACHT. 
 
-![vogel](https://live.staticflickr.com/65535/53459260054_c734882c41_n.jpg) 
+In de workshop kun je je eigen diorama maken. We werken in het mooie atelier van het museum. 
 
-[WG-Kunst](https://www.wgkunst.nl/marit-dik/)
+aanmelden: [Stedelijk Museum Kampen](https://stedelijkmuseumkampen.nl/cms/index.php/wat-te-doen/activiteiten/404-diorama-workshop)
+
+____
+_
+
+### 28 juni t/m 18 augustus 2024
+
+## De Kapberg
+
+### Emo Verkerk, Moritz Ebinger, Marit Dik, Maurice van Telligen, Regula Maria Müller
+
+![De Kapberg](https://live.staticflickr.com/65535/53775234863_6ee2ec6f97_w.jpg)
+
+De Kapberg
+
+Slotweg 17
+
+Egmond a/d Hoef
+
+open vr/za/zo 13.00 - 17.00 uur; opening zondag 30 juni 15.00 
 
 _____
 
@@ -26,19 +47,6 @@ _____
 photo: G.J. van Rooij
 
 [Stedelijk Museum Kampen](https://stedelijkmuseumkampen.nl/cms/index.php/uploaden/verwachte-expo-s/390-meidenpracht-en-vrouwenkracht-marit-dik-beth-namenwirth-tanja-ritterbex)
-
-
-_____
-_____
-
-## Upcoming:
-
-
-28 juni t/m 18 augustus 2024
-
-### De Kapberg, Egmond NH
-
-### Regula Maria Müller, Maurice van Tellingen, Marit Dik, Moritz Ebinger, Emo Verkerk
 
 
 ______
