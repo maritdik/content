@@ -1,25 +1,8 @@
-## Diorama workshop in Stedelijk Museum Kampen 
+## HET ZAND NOG IN DE SCHOENEN
 
-### zaterdag 29 juni, 13.30 - 16.00
+### 28 juni t/m 18 augustus 2024 ; opening zondag 30 juni 15.00 uur 
 
-Oude Straat 133, Stedelijk Museum Kampen
-
-![diorama Marit Dik](https://live.staticflickr.com/7450/27542735364_67ca13e57f_w.jpg)
-
-Mijn diorama's zijn nu te zien in de tentoonstelling MEIDENPRACHT EN VROUWENKRACHT. 
-
-In de workshop kun je je eigen diorama maken. We werken in het mooie atelier van het museum. 
-
-aanmelden: [Stedelijk Museum Kampen](https://stedelijkmuseumkampen.nl/cms/index.php/wat-te-doen/activiteiten/404-diorama-workshop)
-
-____
-_
-
-### 28 juni t/m 18 augustus 2024
-
-## De Kapberg
-
-### Emo Verkerk, Moritz Ebinger, Marit Dik, Maurice van Telligen, Regula Maria Müller
+Emo Verkerk | Moritz Ebinger | Marit Dik | Maurice van Telligen | Regula Maria Müller
 
 ![De Kapberg](https://live.staticflickr.com/65535/53775234863_6ee2ec6f97_w.jpg)
 
@@ -29,18 +12,21 @@ Slotweg 17
 
 Egmond a/d Hoef
 
-open vr/za/zo 13.00 - 17.00 uur; opening zondag 30 juni 15.00 
+open vr/za/zo 13.00 - 17.00 uur
+
 
 _____
 
 
-### March 22 - September 15 . 2024
+
 
 # MEIDENPRACHT EN VROUWENKRACHT
 
-## Stedelijk Museum Kampen
+### up untill September 15
 
-### Tanja Ritterbex | Beth Namenwirth | Marit Dik
+Stedelijk Museum Kampen
+
+Tanja Ritterbex | Beth Namenwirth | Marit Dik
 
 ![Kampen](https://live.staticflickr.com/65535/53721742014_e54fb0b829.jpg)
 
