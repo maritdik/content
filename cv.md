@@ -109,14 +109,19 @@ Education  | |
 2009 | Artist-in residence Phoenicia, Hudsonriver400, USA
 2004 | Artist-in residence, Mirabel, Künstlerhaus Ziegelhütte Darmstadt, Germany,  [http://www.künstlerhaus-ziegelhütte.de](http://www.künstlerhaus-ziegelhütte.de) 
 **Activities** |
+2024 en 2025 | longlist kunstenaar van het jaar
 2020 | Boekuitgave "Een zusje", Uitgeverij De Zwaluw Den Haag
 2012 - 2014 | Jurylid Rabobank Cultuurprijs, Alkmaar 
 2011 | Kunstenaarstekst bij uitgave Loes Groothuis 
 2010 | Curator Geestrijke Mens, KCB, Bergen
-2010-2011 |	Tentoonstellingscommissie, KCB, Bergen
+2010-2011 | Tentoonstellingscommissie, KCB, Bergen
 2007 | Curator, Family Matters, Kunsteyssen, Alkmaar (met Elles Jeurink)
 2007 | Initiatiefgroep Kunsteyssen Alkmaar
 **Publications** |
+2024 | Mister Motley: Wanneer vrouwen...Linda Keja, interview 16 mei
+2024 | De Volkskrant 2 mei : De expo "meidenpracht vrouwenkracht".... Sara van Binsbergen
+2023 | In: The roundness of missing, Hanne Hagenaars, uitg. Paper Editions
+2023 | In: Beeldrijm, Jedithja de Groot,uitg. KOMMA
 2020 | Ode aan de kwetsbaarheid, Myrthe Meester, AtelierMargazine
 2020 | Zus met Down blijft altijd een zusje, Jujen K. van Hoek, Kunst-stukjes
 2018 | IN: Oog voor Detail: Verende druppels, Wieteke van Zeil, De Volkskrant
