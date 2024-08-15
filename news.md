@@ -1,3 +1,15 @@
+## Workshop DIORAMA
+
+### 30 augustus 2024
+
+Quintes ism Stedelijk Museum Kampen
+
+[Stedelijk Museum Kampen](https://stedelijkmuseumkampen.nl)
+
+
+---
+
+
 ## HET ZAND NOG IN DE SCHOENEN
 
 ### 28 juni t/m 18 augustus 2024 ; opening zondag 30 juni 15.00 uur 
