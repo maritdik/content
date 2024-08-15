@@ -101,6 +101,7 @@ Education  | |
 2002 	| REBUS, project by Pygmalion, Alkmaar
 	| They live happily ever after, Helderse Kunstliga, Den Helder
 **Residencies** |
+2024 | Artist in residence, Studio Edvard Munch Ekely, Norway
 2016 | Artist-in residence, 5. Hochdruck Symposium Leipzig, BBKLeipzig en capre plumbum, [http://www.carpe-plumbum.de](http://www.carpe-plumbum.de) , [http://www.bbkl.org](http://www.bbkl.org)
 2015 | Artist-in residence, KiK Kolderveen,  [http://www.kik-site.nl](http://www.kik-site.nl) 
 2012 | Artist-in residence, Leipzig International Art Program, Germany,  [http://www.liap.eu](http://www.liap.eu) 
