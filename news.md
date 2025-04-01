@@ -12,7 +12,7 @@ ___
 
 ___
 
-## Workshop DIORAMA
+### Workshop DIORAMA
 
 ### 30 augustus 2024
 
@@ -20,6 +20,13 @@ Quintes ism Stedelijk Museum Kampen
 
 [Stedelijk Museum Kampen](https://stedelijkmuseumkampen.nl)
 
+___
+
+## Een vogel brak de stilte
+
+### mei 2024, WG Kunst
+
+Marit Dik | Klaske Oenema | Thomas Siemon | Julienne Jattiot
 
 ---
 
