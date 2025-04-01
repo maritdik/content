@@ -1,3 +1,17 @@
+### Studio Edvard Munch Ekely, Artist in residence, July 2025
+
+Oslo / Norway
+
+___
+
+## 50 jaar Grafisch Atelier Alkmaar
+
+### 4 april t/m 25 mei 2025
+
+[Grote Kerk Alkmaar](https://grotekerk-alkmaar.nl)
+
+___
+
 ## Workshop DIORAMA
 
 ### 30 augustus 2024
