@@ -1,4 +1,7 @@
-### Studio Edvard Munch Ekely, Artist in residence, July 2025
+# NEWS:
+___
+
+## Studio Edvard Munch Ekely, Artist in residence, July 2025
 
 Oslo / Norway
 
@@ -10,15 +13,6 @@ ___
 
 [Grote Kerk Alkmaar](https://grotekerk-alkmaar.nl)
 
-___
-
-### Workshop DIORAMA
-
-### 30 augustus 2024
-
-Quintes ism Stedelijk Museum Kampen
-
-[Stedelijk Museum Kampen](https://stedelijkmuseumkampen.nl)
 
 ___
 
@@ -31,29 +25,22 @@ Marit Dik | Klaske Oenema | Thomas Siemon | Julienne Jattiot
 ---
 
 
-## HET ZAND NOG IN DE SCHOENEN
+## Het zand nog in de schoenen
 
 ### 28 juni t/m 18 augustus 2024 ; opening zondag 30 juni 15.00 uur 
 
 Emo Verkerk | Moritz Ebinger | Marit Dik | Maurice van Telligen | Regula Maria Müller
 
+De Kapberg, Egmond a/d Hoef
+
 ![De Kapberg](https://live.staticflickr.com/65535/53775234863_6ee2ec6f97_w.jpg)
-
-De Kapberg
-
-Slotweg 17
-
-Egmond a/d Hoef
-
-open vr/za/zo 13.00 - 17.00 uur
-
 
 _____
 
 
 
 
-# MEIDENPRACHT EN VROUWENKRACHT
+## Meidenpracht en vrouwenkracht
 
 ### up untill September 15
 
