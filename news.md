@@ -1,4 +1,15 @@
 # NEWS:
+
+## KunstenaarsCentrumBergen 
+
+Hoflaan 26 1861 CR Bergen NH 
+
+www.kunstenaarscentrumbergen.nl 
+
+T 072 5898927 (Museum Kranenburgh)
+
+Openingstijden dagelijks 10:30 – 17:00 (maandags gesloten)
+
 ___
 
 ## Studio Edvard Munch Ekely, Artist in residence, July 2025
