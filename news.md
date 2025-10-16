@@ -70,7 +70,7 @@ _____
 
 ## Meidenpracht en vrouwenkracht
 
-### up untill September 15
+### up untill September 15 2024
 
 Stedelijk Museum Kampen
 
@@ -97,7 +97,7 @@ March 2023. I was very greatful to work in the studio of Edvard Munch for a whol
 
 ___
 
-### Centraal Museum Utrecht, OGENBLIKSEM #11
+### Centraal Museum Utrecht, OGENBLIKSEM #11, 2023
 
 
 ![meebewegen](https://live.staticflickr.com/65535/52501849102_8f9c1c164b.jpg)
