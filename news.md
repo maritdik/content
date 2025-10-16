@@ -43,6 +43,8 @@ ___
 
 ### 4 april t/m 25 mei 2025
 
+https://grotekerk-alkmaar.nl
+
 ___
 
 ## Een vogel brak de stilte
