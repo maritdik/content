@@ -56,7 +56,7 @@ Marit Dik | Klaske Oenema | Thomas Siemon | Julienne Jattiot
 
 ## Het zand nog in de schoenen
 
-### 28 juni t/m 18 augustus 2024 ; opening zondag 30 juni 15.00 uur 
+### 28 juni t/m 18 augustus 2024 
 
 Emo Verkerk | Moritz Ebinger | Marit Dik | Maurice van Telligen | Regula Maria Müller
 
@@ -70,7 +70,7 @@ _____
 
 ## Meidenpracht en vrouwenkracht
 
-### up untill September 15 2024
+### Maart - September 2024
 
 Stedelijk Museum Kampen
 
