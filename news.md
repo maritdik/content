@@ -1,6 +1,23 @@
 # NEWS:
 
+## Arti et Amicitiae: Salon
+
+### 28 nov 2025 - 10 jan 2026
+
+ARTI ET AMICITIAE 
+
+Rokin 112 
+
+1012 LB Amsterdam 
+
+https://arti.nl
+
+(gesloten 25 dec - 1/jan)
+___
+
 ## KunstenaarsCentrumBergen 
+
+### 9 nov 2025 - 4 jan 2026 
 
 Hoflaan 26 1861 CR Bergen NH 
 
@@ -12,7 +29,9 @@ Openingstijden dagelijks 10:30 – 17:00 (maandags gesloten)
 
 ___
 
-## Studio Edvard Munch Ekely, Artist in residence, July 2025
+## Studio Edvard Munch Ekely, Artist in residence 
+
+### July 2025
 
 Oslo / Norway
 
