@@ -43,10 +43,6 @@ ___
 
 ### 4 april t/m 25 mei 2025
 
-[Grote Kerk Alkmaar](https://grotekerk-alkmaar.nl)
-
-![MaritDik]( https://live.staticflickr.com/65535/54459712239_378006b6a4_m.jpg)
-
 ___
 
 ## Een vogel brak de stilte
@@ -66,11 +62,10 @@ Emo Verkerk | Moritz Ebinger | Marit Dik | Maurice van Telligen | Regula Maria M
 
 De Kapberg, Egmond a/d Hoef
 
-![De Kapberg](https://live.staticflickr.com/65535/53775234863_6ee2ec6f97_w.jpg)
 
 _____
 
-
+## Selection previous events:
 
 
 ## Meidenpracht en vrouwenkracht
@@ -87,12 +82,7 @@ photo: G.J. van Rooij
 
 [Stedelijk Museum Kampen](https://stedelijkmuseumkampen.nl/cms/index.php/uploaden/verwachte-expo-s/390-meidenpracht-en-vrouwenkracht-marit-dik-beth-namenwirth-tanja-ritterbex)
 
-
 ______
-______
-
-
-## Selection previous events:
 
 
 ### Studio Edvard Munch Ekely, Norway, Artist in residence, March 2023
