@@ -7,7 +7,8 @@ Education  | |
 1976-1983 |	Psychologie, VU, Vrije Universiteit, Amsterdam 
 1983-2016 |	Psycholoog o.m. voor Esdégé-Reigersdaal
 **Exhibitions**  | 
-2025 	| Salon Arti et Amicitiae, Amsterdam
+2025 	| Open studio Edard Munch Studio, Ekely,Oslo, No	
+	| Salon Arti et Amicitiae, Amsterdam
 	| Alles in de wind II , DAK, Utrecht
 2024	| MEIDENPRACHT EN VROUWEMKRACHT, Stedelijk Museum Kampen
 	| Een vogel brak de stilte, WG Kunst, Amsterdam
