@@ -1,5 +1,17 @@
 # NEWS:
 
+## OPEN STUDIO
+
+### 28 nov 16.00 - 19.00
+
+### 29 nov 13.00 - 17.00
+
+and by appointment (maritdik@gmail.com)
+
+Jac v Lennepkade 303, Amsterdam
+
+___
+
 ## Arti et Amicitiae: Salon
 
 ### 28 nov 2025 - 10 jan 2026
