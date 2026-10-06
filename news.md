@@ -1,47 +1,29 @@
 # NEWS:
 
-## OPEN STUDIO
+## Profiel, groepstentoonstelling KCB
 
-### 28 nov 16.00 - 19.00
+### t/m 1 nov 2026
 
-### 29 nov 13.00 - 17.00
+KCB, in de villa van Museum Kranenburgh, Bergen NH
 
-and by appointment (maritdik@gmail.com)
+ook tijdens Kunsttiendaagse Bergen
 
-Jac v Lennepkade 303, Amsterdam
+Van mij is er een werk uit de serie "Een zusje" 
 
-___
+het gelijknamige boekje is via mijn emailadres (maritdik@gmail.com) te bestellen.
 
-## Arti et Amicitiae: Salon
 
-### 28 nov 2025 - 10 jan 2026
 
-ARTI ET AMICITIAE 
 
-Rokin 112 
 
-1012 LB Amsterdam 
 
-https://arti.nl
+_____
 
-(gesloten 25 dec - 1/jan)
-___
+## Selection previous events:
 
-## KunstenaarsCentrumBergen 
 
-### 9 nov 2025 - 4 jan 2026 
 
-Hoflaan 26 1861 CR Bergen NH 
-
-www.kunstenaarscentrumbergen.nl 
-
-T 072 5898927 (Museum Kranenburgh)
-
-Openingstijden dagelijks 10:30 – 17:00 (maandags gesloten)
-
-___
-
-## Studio Edvard Munch Ekely, Artist in residence 
+## Studio Edvard Munch Ekely, Artist in residence #2
 
 ### July 2025
 
@@ -49,15 +31,9 @@ Oslo / Norway
 
 https://edvard-munchs-atelier.no/about-ekely/?lang=en
 
-___
+____
 
-## 50 jaar Grafisch Atelier Alkmaar
-
-### 4 april t/m 25 mei 2025
-
-https://grotekerk-alkmaar.nl
-
-___
+## Selection previous events:
 
 ## Een vogel brak de stilte
 
@@ -65,21 +41,7 @@ ___
 
 Marit Dik | Klaske Oenema | Thomas Siemon | Julienne Jattiot
 
----
-
-
-## Het zand nog in de schoenen
-
-### 28 juni t/m 18 augustus 2024 
-
-Emo Verkerk | Moritz Ebinger | Marit Dik | Maurice van Telligen | Regula Maria Müller
-
-De Kapberg, Egmond a/d Hoef
-
-
-_____
-
-## Selection previous events:
+____
 
 
 ## Meidenpracht en vrouwenkracht
