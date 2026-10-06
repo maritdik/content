@@ -8,7 +8,10 @@ Education  | |
 1983-2016 |	Psycholoog o.m. voor Esdégé-Reigersdaal
 **Exhibitions**  | 
 2025 	| Open studio Edard Munch Studio, Ekely,Oslo, No	
+	| Open atelier Amsterdam
 	| Salon Arti et Amicitiae, Amsterdam
+	| De kapberg, Egmond a/d Hoef
+	| jubileum GAA, Grote Kerk Alkmaar
 	| Alles in de wind II , DAK, Utrecht
 2024	| MEIDENPRACHT EN VROUWEMKRACHT, Stedelijk Museum Kampen
 	| Een vogel brak de stilte, WG Kunst, Amsterdam
