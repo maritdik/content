@@ -1,23 +1,36 @@
+
 # NEWS:
 
-## Profiel, groepstentoonstelling KCB
+## Arti et Amicitiae: Salon
 
-### t/m 1 nov 2026
+### 4.12.2026 - 10.1.2027
 
-KCB, in de villa van Museum Kranenburgh, Bergen NH
+Opening 4 December2026, 19.00-22.00 uur
 
-ook tijdens Kunsttiendaagse Bergen
+____
 
-Van mij is er een werk uit de serie "Een zusje" 
+## Art Zaanstad
 
-het gelijknamige boekje is via mijn emailadres (maritdik@gmail.com) te bestellen.
+### 14.11.2026 - 10.1.2027
 
+Hembrugterrein, Grote Huizen 11, 1505 RH Zaandam
 
+____
 
+____
 
+## Upcoming
 
+### De Bouwput, Amsterdam - Januar 2027
 
-_____
+___
+
+### Jacob Smits Museum _ Februar 2027
+
+____
+
+____
+
 
 ## Selection previous events:
 
@@ -31,26 +44,13 @@ Oslo / Norway
 
 https://edvard-munchs-atelier.no/about-ekely/?lang=en
 
-____
-
-## Selection previous events:
-
-## Een vogel brak de stilte
-
-### mei 2024, WG Kunst
-
-Marit Dik | Klaske Oenema | Thomas Siemon | Julienne Jattiot
 
 ____
 
 
-## Meidenpracht en vrouwenkracht
-
-### Maart - September 2024
+## Meidenpracht en vrouwenkracht, 2024
 
 Stedelijk Museum Kampen
-
-Tanja Ritterbex | Beth Namenwirth | Marit Dik
 
 ![Kampen](https://live.staticflickr.com/65535/53721742014_e54fb0b829.jpg)
 
